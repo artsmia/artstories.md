@@ -9,7 +9,7 @@ It’s a classic story of boy meets bird. The boy is Ganymede, a beautiful princ
 
 The boy and the eagle are carved from two separate blocks of marble that were later put together. Thorvaldsen’s mastery can be seen in the precision with which the two figures fit together: the eagle’s beak rests just one-eighth of an inch above the cup in Ganymede’s hand. 
 
-## Ancient model
+## Ancient Model
 
 The cup Ganymede holds in his left hand is modeled after a kylix, a kind of drinking cup used in ancient Greece. They were common at social gatherings or parties, its shallow shape making it easier to drink while reclining.
 
@@ -21,11 +21,11 @@ The eagle was sculpted with such zoological exactness—from the lifelike layeri
 
 Ganymede has a pretty good poker face. You can’t tell if he’s enjoying his eagle experience or concerned. Thorvaldsen, like many artists of his time, felt that timeless art was grounded in universal human characteristics, like reason and intellect, more than individual differences like emotion. So he focuses on Ganymede’s interior experience rather than any exterior reaction.
 
-## Liberty cap
+## Liberty Cap
 
 The cap that Ganymede wears is a Phrygian cap, also known as a liberty cap. It was the hat of choice for French revolutionaries and sometimes crowns the head of Columbia, the female impersonation of the United States. It’s named for a region in Turkey, but our liberty-loving forebears were actually thinking of the pileus, a cone-like, brimless hat worn by freed slaves in ancient Greece as a symbol of their freedom.
 
-## Food of the Goods
+## Food of the Gods
 
 Ganymede is feeding the eagle ambrosia, the “food of the gods” in ancient Greek mythology and often characterized as a fluid. Ambrosia was said to bestow immortality on anyone who drank it.
 

@@ -20,7 +20,7 @@ In the second video, Ryan points out the exterior features that make the Tatra a
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_mia_49908a.jpg)
 
-The MIA’s Tatra was bought in Brussels, Belgium, in 1948, and exported to Canada in the 1950s. With Czechoslovakia, where the car was made, under Soviet rule, parts were hard to come by. The exterior has been repainted, but no known Tatra T87 has its original paint. Only worn parts of the engine and transaxle have been replaced.
+The MIA’s Tatra was bought in Brussels, Belgium, in 1948, and exported to Canada in the 1950s. With Czechoslovakia, where the car was made, under Soviet rule, parts were hard to come by. A Canadian collector purchased the Tatra in 1991 and rebuilt the engine, restored and repainted the body and dashboard, and restored the original leather seats.
 
 ---
 

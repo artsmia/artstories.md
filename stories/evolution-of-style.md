@@ -1,13 +1,11 @@
 # [Evolution of Style](http://artsmia.github.io/griot/#/stories/1142)
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_null.jpg)
-![](http://cdn.dx.artsmia.org/thumbs/tn_null.jpg)
 
 Matisse’s palette, painting technique, and artistic style continued to change and evolve over his career, sometimes quite drastically. Originally trained as a lawyer, Matisse pursued his interest in art at the age of 21 by following the traditional path of a professional artist – he moved to Paris and went to art school, ultimately studying at the prestigious École des Beaux-Arts (School of Fine Arts). His earliest work reflected his traditionalist training and is very un-Matisse. During the late 1890s, Paris’ art scene was active and dynamic and soon Matisse was experimenting with the diverse styles of the time including Impressionism and Neo-Impressionism.
 
 ---
 
-![](http://cdn.dx.artsmia.org/thumbs/tn_null.jpg)
 ![](http://cdn.dx.artsmia.org/thumbs/tn_null.jpg)
 
 Two summers spent at the beach were pivotal in Matisse’s career and style. In 1904, Matisse visited fellow artist Paul Signac in the south of France, where the bright light drastically changed Matisse’s palette to one of vivid colors. Signac introduced him to the Pointilist technique of using small dots of complementary colors to create dynamic works.
@@ -23,13 +21,11 @@ Just a few years after helping launch the Fauvist movement, Matisse’s works we
 ---
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_null.jpg)
-![](http://cdn.dx.artsmia.org/thumbs/tn_null.jpg)
 
 Matisse’s artistic endeavors followed varying paths in the years to follow. Trips to southern Spain, Russia, and Morocco inspired many of his works. The Cubist art of Spaniards Pablo Picasso and Juan Gris, the jewel-like icons in Russia, and the brilliant light and color of the exotic land of Morocco captivated him.
 
 ---
 
-![](http://cdn.dx.artsmia.org/thumbs/tn_null.jpg)
 ![](http://cdn.dx.artsmia.org/thumbs/tn_null.jpg)
 
 In 1917, Matisse settled in Nice in the South of France, where he would remain for the rest of his life. Thus began a lengthy period in which he turned his focus to light: its effect as it fell on his female models and on the items he arranged in his house. He painted the female figure in various poses, states of undress, and different clothing. He also took to painting outdoors as a way to not only study the light, but to rejuvenate himself and his connection to nature.

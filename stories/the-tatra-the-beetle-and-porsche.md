@@ -1,14 +1,9 @@
 # [The Tatra, the Beetle, and Porsche](http://artsmia.github.io/griot/#/stories/1826)
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_2014_TDX_MIAArtStories_119.jpg)
-
-The predecessor to the T87 was the T77, also designed by Hans Ledwinka and introduced in 1934. That same year, Hitler hired Ferdinand Porsche to design a “people’s car”, or “Volkswagen.” Porsche borrowed liberally from Ledwinka to create the Volkswagen Beetle. “Well sometimes I looked over his shoulder and sometimes he looked over mine,” was all Porsche said of it.
-
----
-
 ![](http://cdn.dx.artsmia.org/thumbs/tn_2014_TDX_MIAArtStories_121.jpg)
 
-<span>A 1935 VW Beetle Prototype, with Ferdinand Porsche standing in front. </span>
+The predecessor to the T87 was the T77, also designed by Hans Ledwinka and introduced in 1934. That same year, Hitler hired Ferdinand Porsche to design a “people’s car”, or “Volkswagen.” Porsche borrowed liberally from Ledwinka to create the Volkswagen Beetle. “Well sometimes I looked over his shoulder and sometimes he looked over mine,” was all Porsche said of it.
 
 ---
 
@@ -16,6 +11,13 @@ The predecessor to the T87 was the T77, also designed by Hans Ledwinka and intro
 ![](http://cdn.dx.artsmia.org/thumbs/tn_mia_49914a.jpg)
 
 <span>Prototypes of the Beetle, also with a rear-mounted, air-cooled engine, started hitting the road in 1935. Ledwinka’s T87 left the factory in 1936. Formally titled the “KdF-Wagen,” the first official Volkswagen Beetles were manufactured in 1938 and their production slowed during World War II. </span>
+
+---
+
+![](http://cdn.dx.artsmia.org/thumbs/tn_2014_TDX_MIAArtStories_227.jpg)
+![](http://cdn.dx.artsmia.org/thumbs/tn_mia_49930a.jpg)
+
+
 
 ---
 

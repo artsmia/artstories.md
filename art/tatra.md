@@ -1,7 +1,7 @@
 # [Tatra](http://artsmia.github.io/griot/#/o/98653)
 ![Tatra](http://api.artsmia.org/images/98653/large.jpg)
 
-Can cars be art? The Tatra T87 answers the question with a glance. In fact, its design and engineering were both ahead of its time, the aerodynamic style reducing air resistance and dropping jaws. From the three-piece windshield to the fin in the back, every feature blends forms and function, and because of its performance-enhancing features the Tatra T87 was one of the fastest cars of its day. Capable of 100 miles per hour, it was ideal for the newly opened Autobahn, the German federal highway system, which for the most part has no speed limit.
+Can cars be art? The Tatra T87 answers the question with a glance. In fact, its design and engineering were both ahead of its time, the aerodynamic style reducing air resistance while dropping jaws. From the three-piece windshield to the fin in the back, every feature blends forms and function, and because of its performance-enhancing features the Tatra T87 was one of the fastest cars of its day. Capable of 100 miles per hour, it was ideal for the newly opened Autobahn, the German federal highway system, which for the most part has no speed limit.
 
 ---
 

@@ -12,7 +12,7 @@ Kirkwood was equipped with its own winery, bakery, and blacksmith shop, typical 
 
 ---
 
-![](http://cdn.dx.artsmia.org/thumbs/tn_120727_mia329_7928.jpg)
+![](http://cdn.dx.artsmia.org/thumbs/tn_2014_TDX_MIAArtStories_124.jpg)
 
 Kirkwood eventually fell into ruin, and was demolished in the early 1900s. In her 1902 book, Historic Homes of Mississippi, Mrs. N.D. Dupress described Kirkwood Plantation as “A colonial pile with broad halls, large rooms, and conservatory, gardens and wide lawn. … It was taken down, the carved woodwork of the library was given to a church, together with the handsome stair-rail. ... Tall trees grow where once spacious halls and lofty rooms echoed.”
 

@@ -3,8 +3,6 @@
 
 He was a master of the middle ground, solidly centering the action in the narrow strip between foreground and horizon. A gifted landscape artist, Jean-François Millet evokes the boundless space of the rural plains where he lived by squeezing into this space a flock of grazing sheep, a lone shepherd, a man driving a farm cart, and a row of thatched-roof houses among the lush green pastures. He began his professional career in Paris, exhibiting controversial large-scale paintings of peasants at the Salons. Later Millet moved his growing family to the small village of Barbizon joining an informal colony of artists drawn to the forest of Fontainebleau and its bucolic surroundings.
 
-Jean-François Millet, French, 1814–1875, *The Church at Chailly*, 1868–69, pastel and Conté crayon on beige wove paper, with framing lines in black, Bequest of Mrs. Egil Boeckmann 67.31.4, © 2014 Minneapolis Institute of Arts
-
 ---
 
 ## Brought to Light
@@ -23,10 +21,6 @@ Millet's friend and agent, Alfred Sensier, suggested brighter drawings might app
 
 In this preliminary graphite study, now in the Yale University Art Gallery, Millet left out most of the details that would appear in the middle ground of the final pastel and focused on the general outline of the town.
 
-Jean-François Millet, *Normandy*, c. 1853–54, graphite, Gift of Beatrice Mintz, M.D., 1934, and Robert V. Sager, M.D., in memory of Samuel Benjamin 1984.49.3, Yale University Art Gallery
-
 ## Pastel Tycoon
 
 This pastel was among the last works purchased by James J. Hill, the Minnesota railroad magnate. It arrived in St. Paul in the spring of 1916, along with another Millet pastel, *Watermill at the Foot of a Mountain, Allier*, just weeks before Hill's death on May 29, 1916.
-
-*Watermill at the Foot of a Mountain, Allier*, c. 1867–69, pastel on wove paper, Bequest of Mrs. Egil Boeckmann 67.31.3, © 2014 Minneapolis Institute of Arts
