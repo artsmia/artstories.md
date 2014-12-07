@@ -1,4 +1,4 @@
-# Beer Pot
+# [Beer Pot](http://artsmia.github.io/griot/#/o/12111)
 ![Beer Pot](http://api.artsmia.org/images/12111/medium.jpg)
 
 <p>How is brewing beer like growing babies? The Zulu believe the same ancestral forces that ferment beer also create children in the womb. Zulu families will drink beer together and ask their ancestors to help grow the brood. Round, shiny black pots like this one are at the center of Zulu beer parties, refreshing the living while linking them to past family ancestors.</p>

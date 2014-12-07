@@ -1,4 +1,4 @@
-# Egungun Costume
+# [Egungun Costume](http://artsmia.github.io/griot/#/o/111893)
 ![Egungun Costume](http://api.artsmia.org/images/111893/medium.jpg)
 
 <p>The true power and purpose of this Egungun costume is revealed only by motion. Swaying and twirling to the beat of a battalion of drums, an Egungun dancer communicates with ancestors, who play key roles in the Yoruba community long after they’ve passed on. Egungun ceremonies both honor the ancestors and call on them to protect their descendants from danger and misfortune, defend the good name of the community, and reinforce morals and laws. So deep is this communication that the performance is said to temporarily transform the dancer into his ancestors.</p>n

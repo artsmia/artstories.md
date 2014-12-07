@@ -1,4 +1,4 @@
-# Water Pitcher
+# [Water Pitcher](http://artsmia.github.io/griot/#/o/1358)
 ![Water Pitcher](http://api.artsmia.org/images/1358/medium.jpg)
 
 <p>Hand washing is automatic for most of us, something we do without thinking. But if you do it to honor your ancestors—and your ancestors happen to be the past kings of Benin—it’s a pretty big deal, especially since having a king for an ancestor probably means you’re one, too. Your royal hands will require a royal jug, perhaps shaped like a leopard—an animal admired for its ferocity, intelligence, agility, and speed. Qualities you probably see in yourself.</p>n

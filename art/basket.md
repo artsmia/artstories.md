@@ -1,4 +1,4 @@
-# Basket
+# [Basket](http://artsmia.github.io/griot/#/o/111099)
 ![Basket](http://api.artsmia.org/images/111099/medium.jpg)
 
 <p>“Tying the knot” is shorthand around the world for getting hitched, taking the plunge—getting married. But in Somali weddings, at least, it was taken literally: women of the bride’s family made baskets like these and filled them with gifts and food. But one had a twist: it was tied with an impenetrable web of knots, and men from the groom’s family took turns trying to open it. Failure meant having to dance, sing, or otherwise entertain the bride. The groom was ultimately expected to win, but untying the knot didn’t symbolize the marriage coming apart. In fact, just the opposite.</p>n

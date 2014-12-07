@@ -1,4 +1,4 @@
-# Fantasy Coffin
+# [Fantasy Coffin](http://artsmia.github.io/griot/#/o/111088)
 ![Fantasy Coffin](http://api.artsmia.org/images/111088/medium.jpg)
 
 <p>Imagine you’re dead (sorry), and a crowd has gathered for your funeral. They will bear your body through the streets in a unique coffin built to herald your wealth, status, and community standing. Now here’s an important question: exactly what coffin design would you want them to choose as a symbol of your profession or personality? Perhaps a larger-than-life lobster, complete with antennae and claws? Hey, it’s your funeral.</p>n

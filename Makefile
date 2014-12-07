@@ -8,7 +8,8 @@ art: artstories.json
 	@jq -c '.objects | .[]' $< | sed 's/<\([^ >]*\) [^>]*>/<\1>/g' | while read json; do \
 		title=$$(jq -r '.title' <<<$$json); \
 		slug=$$(echo $$title | sed -e 's/[^[:alnum:]]/-/g' | tr -s '-' | tr A-Z a-z | sed -e 's/--/-/; s/^-//; s/-$$//'); \
-		doc="# $$title\n"; \
+		id=$$(jq -r '.id' <<<$$json); \
+		doc="# [$$title](http://artsmia.github.io/griot/#/o/$$id)\n"; \
 		doc+="![$$title]($$(jq -r '.thumbnail' <<<$$json))\n"; \
 		doc+="\n$$(jq -r '.description' <<<$$json)"; \
 		doc+="\n\n---"; \
