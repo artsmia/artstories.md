@@ -5,9 +5,11 @@ artstories.json:
 
 art: artstories.json
 	@mkdir -p art
+	@echo > readme.md
 	@jq -c '.objects | .[]' $< | sed 's/<\([^ >]*\) [^>]*>/<\1>/g' | while read json; do \
 		title=$$(jq -r '.title' <<<$$json); \
 		slug=$$(echo $$title | sed -e 's/[^[:alnum:]]/-/g' | tr -s '-' | tr A-Z a-z | sed -e 's/--/-/; s/^-//; s/-$$//'); \
+		echo "* [$$title](art/$$slug.md)" >> readme.md; \
 		id=$$(jq -r '.id' <<<$$json); \
 		doc="# [$$title](http://artsmia.github.io/griot/#/o/$$id)\n"; \
 		doc+="![$$title]($$(jq -r '.thumbnail' <<<$$json))\n"; \
