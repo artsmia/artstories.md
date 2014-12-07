@@ -6,13 +6,13 @@
 ---
 
 ## Shoes
-<p>Mami Wata is the god of the go-getters, the spiritual guide for upwardly mobile city dwellers getting by on hustle and street smarts, with no family money to fall back on. Her fashionable (in the 1940s), foreign-made shoes show that she’s urbane, sophisticated—a self-sufficient operator who’s figured out the system.</p>n
+<p>Mami Wata is the god of the go-getters, the spiritual guide for upwardly mobile city dwellers getting by on hustle and street smarts, with no family money to fall back on. Her fashionable (in the 1940s), foreign-made shoes show that she’s urbane, sophisticated—a self-sufficient operator who’s figured out the system.</p>
 
 ## Face
-<p>Mami Wata’s straight hair, lighter skin, and non-African features clearly identify her as a foreigner. Along the West African coast, which has traded with Europeans since the 1400s, foreigners are often viewed as sources of wealth.</p>n
+<p>Mami Wata’s straight hair, lighter skin, and non-African features clearly identify her as a foreigner. Along the West African coast, which has traded with Europeans since the 1400s, foreigners are often viewed as sources of wealth.</p>
 
 ## Snakes
-<p>In many parts of Africa, water spirits are associated with wealth and health and are often depicted as snakes, making Mami Wata especially beguiling to her African admirers.</p>n
+<p>In many parts of Africa, water spirits are associated with wealth and health and are often depicted as snakes, making Mami Wata especially beguiling to her African admirers.</p>
 
 ---
 

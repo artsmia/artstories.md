@@ -29,7 +29,7 @@ art: artstories.json
 			echo -e "$$doc" > art/$$slug.md; \
 		done; \
 		doc=$$(cat art/$$slug.md); \
-		echo -e "$$doc" > art/$$slug.md; \
+		echo -e "$$doc" | sed 's/>n$$/>/g; s/>n</></g' > art/$$slug.md; \
 	done
 
 .PHONY: art

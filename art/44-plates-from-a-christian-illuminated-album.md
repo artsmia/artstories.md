@@ -6,7 +6,7 @@
 ---
 
 ## Reordered
-<p>The loose pages of the book arrived at the museum in 2009, in the order you’re seeing them in this photograph. Since then, the pages have been examined by art conservators, art historians, and experts in Ethiopian Orthodox Christian book arts. As a result of their analysis, we’ve attempted to put the jumbled pages back into their original order. Select “More” to page through the re-ordered book.</p>n
+<p>The loose pages of the book arrived at the museum in 2009, in the order you’re seeing them in this photograph. Since then, the pages have been examined by art conservators, art historians, and experts in Ethiopian Orthodox Christian book arts. As a result of their analysis, we’ve attempted to put the jumbled pages back into their original order. Select “More” to page through the re-ordered book.</p>
 
 ---
 

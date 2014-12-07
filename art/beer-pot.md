@@ -6,19 +6,19 @@
 ---
 
 ## Pot Top
-<p>There’s a good reason the pot’s patterns are concentrated near the top. During beer parties, the pot sits on the ground, forging a connection between the drinkers and the ancestors who reside in the earth.</p>n
+<p>There’s a good reason the pot’s patterns are concentrated near the top. During beer parties, the pot sits on the ground, forging a connection between the drinkers and the ancestors who reside in the earth.</p>
 
 ## Spirits
-<p>In Zulu culture, spirits are believed to like dark, shadowy things, so the pot’s glossy black surface is a kind of invitation: spirits, join the party.</p>n
+<p>In Zulu culture, spirits are believed to like dark, shadowy things, so the pot’s glossy black surface is a kind of invitation: spirits, join the party.</p>
 
 ## Arcs
-<p>Arcs are associated with women and the moon. As the moon waxes and wanes, so, too, do women’s bodies as they become pregnant and give birth to healthy children.</p>n
+<p>Arcs are associated with women and the moon. As the moon waxes and wanes, so, too, do women’s bodies as they become pregnant and give birth to healthy children.</p>
 
 ## Shields
-<p>These hourglass shapes likely refer to the shields that young Zulu men carry when they are old enough to marry. The shields are actually oval, but are often carried with a spear and a knobbed stick crossed behind them, creating an hourglass form.</p>n
+<p>These hourglass shapes likely refer to the shields that young Zulu men carry when they are old enough to marry. The shields are actually oval, but are often carried with a spear and a knobbed stick crossed behind them, creating an hourglass form.</p>
 
 ## Leaves
-<p>These leaf-like shapes may represent certain medicinal herbs believed by the Zulu to ensure pregnancy. The roots of the Gopo Berry (<i>Phytolacca dodecandra</i>) are used to treat infertility.</p>n
+<p>These leaf-like shapes may represent certain medicinal herbs believed by the Zulu to ensure pregnancy. The roots of the Gopo Berry (<i>Phytolacca dodecandra</i>) are used to treat infertility.</p>
 
 ---
 
