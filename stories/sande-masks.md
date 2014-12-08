@@ -21,21 +21,21 @@ Helmet mask Artist Unknown (Gola) (Liberia, Africa), Date Unknown Wood, plant fi
 ![](http://cdn.dx.artsmia.org/thumbs/tn_mia_5030832.jpg)
 
 Helmet mask\
-nArtist Unknown (Sherbro or Mende)\
-n(Sierra Leone, Africa), Date Unknown\
-nWood\
-n14 3/16 x 9 1/8 x 9 in. (36.04 x 23.18 x 22.86 cm)\
-nGift of William Siegmann 2011.70.5
+ Artist Unknown (Sherbro or Mende)\
+ (Sierra Leone, Africa), Date Unknown\
+ Wood\
+ 14 3/16 x 9 1/8 x 9 in. (36.04 x 23.18 x 22.86 cm)\
+ Gift of William Siegmann 2011.70.5
 
 ---
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_mia_5030932.jpg)
 
 “Humoy” helmet mask\
-nArtist Unknown (Mende or Sherbro)\
-n(Sierra Leone, Africa), Date Unknown\
-nWood\
-n15 3/4 x 10 1/2 x 9 3/4 in. (40.01 x 26.67 x 24.77 cm)\
-nGift of William Siegmann 2011.70.4
+ Artist Unknown (Mende or Sherbro)\
+ (Sierra Leone, Africa), Date Unknown\
+ Wood\
+ 15 3/4 x 10 1/2 x 9 3/4 in. (40.01 x 26.67 x 24.77 cm)\
+ Gift of William Siegmann 2011.70.4
 
 ---

@@ -11,8 +11,8 @@ The afterlife was just as important to ancient Egyptians as life on earth. But t
 ![](http://cdn.dx.artsmia.org/thumbs/tn_mia_5020758.jpg)
 
 Funerary Papyrus of the Priest of Amon, Jekhonsefonkh\
-nArtist Unknown (Egyptian)\
-n(Egypt, Africa), 1085-710 B.C.
+ Artist Unknown (Egyptian)\
+ (Egypt, Africa), 1085-710 B.C.
 
 ---
 

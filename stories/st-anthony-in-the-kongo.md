@@ -15,8 +15,8 @@ St. Anthony was known in his day as the “Hammer of Heretics” for his clear t
 An etching of St. Anthony by the Italian artist Simone Cantarini, completed much earlier than the Kongo sculpture.
 
 *Saint Anthony of Padua,* *Simone Cantarini,* *Italy, late 1630s*\
-*Etching,* *10 7/16 x 6 15/16 in. (26.51 x 17.62 cm) (plate)*\
-*The Herschel V. Jones Fund, by exchange P.72.50*
+ *Etching,* *10 7/16 x 6 15/16 in. (26.51 x 17.62 cm) (plate)*\
+ *The Herschel V. Jones Fund, by exchange P.72.50*
 
  
 
