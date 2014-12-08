@@ -2,6 +2,6 @@
 
 <video src='http://cdn.dx.artsmia.org/videos/engungun.mp4'></video>
 
-<p>Egungun Dancer</p>
+Egungun Dancer
 
 ---

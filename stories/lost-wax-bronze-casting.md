@@ -2,6 +2,6 @@
 
 <video src='http://cdn.dx.artsmia.org/videos/lostWaxBronzeCasting.mp4'></video>
 
-<p><strong></strong>Benin artists in Nigeria practice the centuries-old tradition of lost wax bronze casting.</p>
+****Benin artists in Nigeria practice the centuries-old tradition of lost wax bronze casting.
 
 ---

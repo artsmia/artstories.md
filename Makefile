@@ -13,13 +13,14 @@ art: artstories.json
 		id=$$(jq -r '.id' <<<$$json); \
 		doc="# [$$title](http://artsmia.github.io/griot/#/o/$$id)\n"; \
 		doc+="![$$title]($$(jq -r '.thumbnail' <<<$$json))\n"; \
-		doc+="\n$$(jq -r '.description' <<<$$json)"; \
+		doc+="\n$$(jq -r '.description' <<<$$json | sed 's/>n$$/>/g; s/>n</></g' | pandoc --no-wrap -f html -t markdown)"; \
 		doc+="\n\n---"; \
 		jq -c -r '.views[] | .annotations[] | .title, .description' <<<$$json | while read title; do \
 			read description; \
-			note="\n\n## $$title\n$$description"; \
-			doc+=$$note; \
-			echo -e $$doc > art/$$slug.md; \
+			pandocDesc=$$(echo $$description | sed 's/>n$$/>/g; s/>n</></g' | pandoc --no-wrap -f html -t markdown); \
+			note="\n\n## $$title\n\n$$pandocDesc"; \
+			doc+="$$note"; \
+			echo -e "$$doc" > art/$$slug.md; \
 		done; \
 		doc=$$(cat art/$$slug.md); \
 		doc+="\n\n---\n"; \
@@ -51,7 +52,8 @@ stories: artstories.json
 				text) ;; \
 				*) echo "type $$type not supported!!!";; \
 			esac; \
-			doc+="$$media\n\n$$text\n\n---"; \
+			pandocText=$$(echo $$text | sed 's/>n$$/>/g; s/>n</></g' | pandoc --no-wrap -f html -t markdown); \
+			doc+="$$media\n\n$$pandocText\n\n---"; \
 			echo -e "$$doc" > $$file; \
 		done; \
 		doc=$$(cat $$file); \
