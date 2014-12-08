@@ -16,6 +16,6 @@
 
 ---
 
-* [Rositta Nwaokolo, Nigeria (Igbo)](http://artsmia.github.io/griot/#/stories/390)
-* [Communing with the Spirit World](http://artsmia.github.io/griot/#/stories/380)
-* [Mami Wata's Origins](http://artsmia.github.io/griot/#/stories/323)
+* [Rositta Nwaokolo, Nigeria (Igbo)](../stories/rositta-nwaokolo-nigeria-igbo.md)
+* [Communing with the Spirit World](../stories/communing-with-the-spirit-world.md)
+* [Mami Wata's Origins](../stories/mami-wata-s-origins.md)

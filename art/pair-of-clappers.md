@@ -16,7 +16,7 @@
 
 ---
 
-* [The Ivory Trade](http://artsmia.github.io/griot/#/stories/240)
-* [Hippos](http://artsmia.github.io/griot/#/stories/334)
-* [Provenance: A Record of Ownership](http://artsmia.github.io/griot/#/stories/336)
-* [Performing Dance & Music](http://artsmia.github.io/griot/#/stories/371)
+* [The Ivory Trade](../stories/the-ivory-trade.md)
+* [Hippos](../stories/hippos.md)
+* [Provenance: A Record of Ownership](../stories/provenance-a-record-of-ownership.md)
+* [Performing Dance & Music](../stories/performing-dance-music.md)

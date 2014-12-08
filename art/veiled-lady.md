@@ -22,4 +22,4 @@
 
 ---
 
-* [Prince of Veils](http://artsmia.github.io/griot/#/stories/493)
+* [Prince of Veils](../stories/prince-of-veils.md)

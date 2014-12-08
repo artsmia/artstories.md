@@ -16,7 +16,7 @@
 
 ---
 
-* [Ga Funerals](http://artsmia.github.io/griot/#/stories/394)
-* [Sowah Mensah, Ghana](http://artsmia.github.io/griot/#/stories/377)
-* [Communing with the Spirit World](http://artsmia.github.io/griot/#/stories/380)
-* [Fantasy Coffins](http://artsmia.github.io/griot/#/stories/328)
+* [Ga Funerals](../stories/ga-funerals.md)
+* [Sowah Mensah, Ghana](../stories/sowah-mensah-ghana.md)
+* [Communing with the Spirit World](../stories/communing-with-the-spirit-world.md)
+* [Fantasy Coffins](../stories/fantasy-coffins.md)

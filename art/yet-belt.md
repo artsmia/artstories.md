@@ -25,5 +25,5 @@
 
 ---
 
-* [Commanding Authority](http://artsmia.github.io/griot/#/stories/386)
-* [Like all royals, Kuba kings wear their wealth.](http://artsmia.github.io/griot/#/stories/304)
+* [Commanding Authority](../stories/commanding-authority.md)
+* [Like all royals, Kuba kings wear their wealth.](../stories/like-all-royals-kuba-kings-wear-their-wealth.md)

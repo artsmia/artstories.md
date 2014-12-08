@@ -19,5 +19,5 @@
 
 ---
 
-* [Connecting with World Religions](http://artsmia.github.io/griot/#/stories/373)
-* [Ikat Weaving](http://artsmia.github.io/griot/#/stories/246)
+* [Connecting with World Religions](../stories/connecting-with-world-religions.md)
+* [Ikat Weaving](../stories/ikat-weaving.md)

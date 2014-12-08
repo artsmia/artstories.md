@@ -1,0 +1,7 @@
+# [Somali Wedding Poem](http://artsmia.github.io/griot/#/stories/330)
+
+![](http://cdn.dx.artsmia.org/thumbs/tn_mia_5022435.jpg)
+
+<p>Forget awkward, improvised toasts. If you want to wish a Somali couple well, you write them a poem. And not just a few lines. Minnesota resident Fadumo Ali is famous for her wedding poetry, like this excerpt from her 2008 poem, translated into English by Said Mohammed.</p><p><em>Sweet words, smooth love and open hands</em><br><em> Beautiful behavior, sweetness and success</em><br><em> May God give them to you and make them your partners</em><br><em> And may luck be on your side and time help you out</em></p><p><em>Like the Nairus festival or a downpour in the Nugal [Valley]</em><br><em> Like the green pastures where the fat livestock is grazing</em><br><em> Good prospects, mercy of God and victory</em><br><em> The ease of prosperity, and expectations of good things</em><br><em> May God provide you with his kindness</em><br><em> May you stay in peace of mind all your lives</em></p><p><em>Clouds of prosperity, a full beaker and fortunate deeds</em><br><em> Wonderful kids without any shortcomings</em><br><em> The forefront parents of yours who were sought by all</em><br><em> [Be] like them a lighthouse not swaying aside</em><br><em> Good inheritance from your ancestors’ path</em><br><em> With wealth and general progress</em><br><em> Oh, Lord! Give them your bounty and affluence.</em></p>
+
+---

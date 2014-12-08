@@ -25,11 +25,37 @@ art: artstories.json
 		doc+="\n\n---\n"; \
 		jq -c -r '.relatedStories[]' <<<$$json | while read storyId; do \
 			storyTitle=$$(jq -r --arg id $$storyId '.stories[$$id] | .title' artstories.json); \
-			doc+="\n* [$$storyTitle](http://artsmia.github.io/griot/#/stories/$$storyId)"; \
+			storySlug=$$(echo $$storyTitle | sed -e 's/[^[:alnum:]]/-/g' | tr -s '-' | tr A-Z a-z | sed -e 's/--/-/; s/^-//; s/-$$//'); \
+			doc+="\n* [$$storyTitle](../stories/$$storySlug.md)"; \
 			echo -e "$$doc" > art/$$slug.md; \
 		done; \
 		doc=$$(cat art/$$slug.md); \
 		echo -e "$$doc" | sed 's/>n$$/>/g; s/>n</></g' > art/$$slug.md; \
 	done
 
-.PHONY: art
+stories: artstories.json
+	@mkdir -p stories
+	@jq -c '.stories[]' $< | sed 's/<\([^ >]*\) [^>]*>/<\1>/g' | while read json; do \
+		title=$$(jq -r '.title' <<<$$json); \
+		slug=$$(echo $$title | sed -e 's/[^[:alnum:]]/-/g' | tr -s '-' | tr A-Z a-z | sed -e 's/--/-/; s/^-//; s/-$$//'); \
+		id=$$(jq -r '.id' <<<$$json); \
+		file=stories/$$slug.md; \
+		doc="# [$$title](http://artsmia.github.io/griot/#/stories/$$id)"; \
+		echo -e "$$doc" > $$file; \
+		jq -c -r '.pages[] | .text, .image, .type, .video' <<<$$json | while read text; do \
+			read image; read type; read video; \
+			case $$type in \
+				image) media="\n\n![](http://cdn.dx.artsmia.org/thumbs/tn_$$image.jpg)";; \
+				video) media="\n\n<video src='$$video'></video>";; \
+				comparison) media="\n\n![](http://cdn.dx.artsmia.org/thumbs/tn_$$image.jpg)\n![](http://cdn.dx.artsmia.org/thumbs/tn_$$imageB.jpg)";; \
+				text) ;; \
+				*) echo "type $$type not supported!!!";; \
+			esac; \
+			doc+="$$media\n\n$$text\n\n---"; \
+			echo -e "$$doc" > $$file; \
+		done; \
+		doc=$$(cat $$file); \
+		echo -e "$$doc" | sed 's/>n$$/>/g; s/>n</></g' > $$file; \
+	done
+
+.PHONY: art stories

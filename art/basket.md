@@ -16,6 +16,6 @@
 
 ---
 
-* [Dr. Cawo Abdi, Somalia](http://artsmia.github.io/griot/#/stories/388)
-* [Performing Dance & Music](http://artsmia.github.io/griot/#/stories/371)
-* [Somali Wedding Poem](http://artsmia.github.io/griot/#/stories/330)
+* [Dr. Cawo Abdi, Somalia](../stories/dr-cawo-abdi-somalia.md)
+* [Performing Dance & Music](../stories/performing-dance-music.md)
+* [Somali Wedding Poem](../stories/somali-wedding-poem.md)

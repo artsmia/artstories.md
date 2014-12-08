@@ -16,5 +16,5 @@
 
 ---
 
-* [Real or Fake?](http://artsmia.github.io/griot/#/stories/207)
-* [Commanding Authority](http://artsmia.github.io/griot/#/stories/386)
+* [Real or Fake?](../stories/real-or-fake.md)
+* [Commanding Authority](../stories/commanding-authority.md)

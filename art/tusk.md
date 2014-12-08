@@ -19,7 +19,7 @@
 
 ---
 
-* [Commanding Authority](http://artsmia.github.io/griot/#/stories/386)
-* [The British Punitive Expedition](http://artsmia.github.io/griot/#/stories/279)
-* [The Ivory Trade](http://artsmia.github.io/griot/#/stories/240)
-* [The Tale of the Tusk](http://artsmia.github.io/griot/#/stories/233)
+* [Commanding Authority](../stories/commanding-authority.md)
+* [The British Punitive Expedition](../stories/the-british-punitive-expedition.md)
+* [The Ivory Trade](../stories/the-ivory-trade.md)
+* [The Tale of the Tusk](../stories/the-tale-of-the-tusk.md)

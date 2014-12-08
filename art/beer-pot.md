@@ -22,5 +22,5 @@
 
 ---
 
-* [Designing Form & Function](http://artsmia.github.io/griot/#/stories/384)
-* [Making Beer Pots](http://artsmia.github.io/griot/#/stories/154)
+* [Designing Form & Function](../stories/designing-form-function.md)
+* [Making Beer Pots](../stories/making-beer-pots.md)

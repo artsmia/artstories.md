@@ -19,5 +19,5 @@
 
 ---
 
-* [Communing with the Spirit World](http://artsmia.github.io/griot/#/stories/380)
-* ["Nail Fetish"](http://artsmia.github.io/griot/#/stories/325)
+* [Communing with the Spirit World](../stories/communing-with-the-spirit-world.md)
+* [Nail Fetish](../stories/nail-fetish.md)

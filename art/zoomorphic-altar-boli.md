@@ -10,7 +10,7 @@
 
 ---
 
-* [Chérif KeÏta, Mali ](http://artsmia.github.io/griot/#/stories/392)
-* [Communing with the Spirit World](http://artsmia.github.io/griot/#/stories/380)
-* [Boli](http://artsmia.github.io/griot/#/stories/364)
-* [Team Effort](http://artsmia.github.io/griot/#/stories/340)
+* [Chérif KeÏta, Mali ](../stories/chérif-keÏta-mali.md)
+* [Communing with the Spirit World](../stories/communing-with-the-spirit-world.md)
+* [Boli](../stories/boli.md)
+* [Team Effort](../stories/team-effort.md)

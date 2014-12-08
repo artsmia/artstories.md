@@ -16,5 +16,5 @@
 
 ---
 
-* [Expressing Identity](http://artsmia.github.io/griot/#/stories/382)
-* [The Ivory Trade](http://artsmia.github.io/griot/#/stories/240)
+* [Expressing Identity](../stories/expressing-identity.md)
+* [The Ivory Trade](../stories/the-ivory-trade.md)

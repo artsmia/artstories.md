@@ -22,6 +22,6 @@
 
 ---
 
-* [Expressing Identity](http://artsmia.github.io/griot/#/stories/382)
-* [Sande Masks](http://artsmia.github.io/griot/#/stories/283)
-* [Dance](http://artsmia.github.io/griot/#/stories/281)
+* [Expressing Identity](../stories/expressing-identity.md)
+* [Sande Masks](../stories/sande-masks.md)
+* [Dance](../stories/dance.md)

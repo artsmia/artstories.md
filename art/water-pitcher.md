@@ -25,7 +25,7 @@
 
 ---
 
-* [The Leopard-shaped Vessel: Foreign idea or hometown hero? ](http://artsmia.github.io/griot/#/stories/298)
-* [The British Punitive Expedition](http://artsmia.github.io/griot/#/stories/279)
-* [Commanding Authority](http://artsmia.github.io/griot/#/stories/386)
-* [Lost Wax Bronze Casting](http://artsmia.github.io/griot/#/stories/352)
+* [The Leopard-shaped Vessel: Foreign idea or hometown hero? ](../stories/the-leopard-shaped-vessel-foreign-idea-or-hometown-hero.md)
+* [The British Punitive Expedition](../stories/the-british-punitive-expedition.md)
+* [Commanding Authority](../stories/commanding-authority.md)
+* [Lost Wax Bronze Casting](../stories/lost-wax-bronze-casting.md)

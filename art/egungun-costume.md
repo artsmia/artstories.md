@@ -25,5 +25,5 @@
 
 ---
 
-* [Performing Dance & Music](http://artsmia.github.io/griot/#/stories/371)
-* [Egungun Dancer](http://artsmia.github.io/griot/#/stories/367)
+* [Performing Dance & Music](../stories/performing-dance-music.md)
+* [Egungun Dancer](../stories/egungun-dancer.md)

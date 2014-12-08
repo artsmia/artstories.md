@@ -10,6 +10,6 @@
 
 ---
 
-* [Connecting with World Religions](http://artsmia.github.io/griot/#/stories/373)
-* [44 Plates from a Christian illuminated album](http://artsmia.github.io/griot/#/stories/316)
-* [Dr. Getatchew Haile on Ethiopian Manuscripts](http://artsmia.github.io/griot/#/stories/256)
+* [Connecting with World Religions](../stories/connecting-with-world-religions.md)
+* [44 Plates from a Christian illuminated album](../stories/44-plates-from-a-christian-illuminated-album.md)
+* [Dr. Getatchew Haile on Ethiopian Manuscripts](../stories/dr-getatchew-haile-on-ethiopian-manuscripts.md)

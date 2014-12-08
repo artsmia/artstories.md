@@ -19,6 +19,6 @@
 
 ---
 
-* [The Ivory Trade](http://artsmia.github.io/griot/#/stories/240)
-* [St. Anthony in the Kongo](http://artsmia.github.io/griot/#/stories/332)
-* [Connecting with World Religions](http://artsmia.github.io/griot/#/stories/373)
+* [The Ivory Trade](../stories/the-ivory-trade.md)
+* [St. Anthony in the Kongo](../stories/st-anthony-in-the-kongo.md)
+* [Connecting with World Religions](../stories/connecting-with-world-religions.md)

@@ -34,4 +34,4 @@
 
 ---
 
-* [Making a Mummy](http://artsmia.github.io/griot/#/stories/249)
+* [Making a Mummy](../stories/making-a-mummy.md)
