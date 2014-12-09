@@ -24,3 +24,8 @@ Frank James was an art student at the School of Visual Arts in New York during t
 ## Larger Than Life
 
 Starting as an 8 x 10 inch photograph, Chuck Close painted Frank’s head ten times its original photo size.  The large-scale rendering of Frank’s steady stare can be a little unsettling.
+
+---
+
+* [Photorealism](../stories/photorealism.md)
+* [Painting Experiences](../stories/painting-experiences.md)

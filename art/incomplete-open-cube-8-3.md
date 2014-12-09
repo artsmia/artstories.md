@@ -24,3 +24,8 @@ LeWitt set out to “remove the skin altogether and reveal the structure” of a
 ## Black or White?
 
 LeWitt chose white for his open cubes because he wanted a color that would be unobtrusive and free of associations. Black, he felt, was too emotionally expressive.
+
+---
+
+* [Minimalism: What You See is What You See](../stories/minimalism-what-you-see-is-what-you-see.md)
+* [Thinking through the Cube](../stories/thinking-through-the-cube.md)

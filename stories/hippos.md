@@ -13,7 +13,6 @@ The deadliness of hippos is embodied by Ammut, the devourer of souls. With a bod
 ---
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_2013_TDXAfrica_071_01.jpg)
-![](http://cdn.dx.artsmia.org/thumbs/tn_.jpg)
 
 A hippo’s tusk is deadly, but it’s also a symbol of sexual virility and fertility—the reason that Taweret, the goddess of maternity and protector of women in childbirth, was depicted as a pregnant hippo. Her image adorned amulets and household objects associated with childbirth, such as beds. She is often shown holding a fish-shaped hieroglyph called “sa,” which meant protection, underscoring her role as a guardian.
 

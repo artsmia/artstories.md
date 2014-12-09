@@ -23,7 +23,7 @@ The moon is the only light source, spillng in through an unseen window or skylig
 
 ## Politics and Art
 
-Government censors initially approved publication of Rue Transnonain, but King Louis Philippe later ordered the confiscation and destruction of the lithographic printing stone and all unsold impressions of the print. Only a few original impressions survive.
+Government censors initially approved publication of *Rue Transnonain*, but King Louis Philippe later ordered the confiscation and destruction of the lithographic printing stone and all unsold impressions of the print. Only a few original impressions survive.
 
 ## The Father
 

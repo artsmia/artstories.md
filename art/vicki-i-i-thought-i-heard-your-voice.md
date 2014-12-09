@@ -20,3 +20,9 @@ The storyline of a romance comic is full of obvious clichés, but Lichtenstein w
 ## Copycat?
 
 Many were scandalized that Lichtenstein could get away with “copying” a comic strip and call it art. In fact, the painter rarely copied a comic directly, but subtly altered the source image to heighten the clichés.
+
+---
+
+* [Playing with Art's Big Ideas](../stories/playing-with-art-s-big-ideas.md)
+* [Pop Art: Everything is Beautiful](../stories/pop-art-everything-is-beautiful.md)
+* [Diagram of an Artist](../stories/diagram-of-an-artist.md)

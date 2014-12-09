@@ -5,7 +5,7 @@
 
 ---
 
-## What is Tahkt-I-Sulayman?
+## What is Tahkt-i-Sulayman?
 
 During an extended trip to the Middle East in 1963, Stella was inspired by some of the buildings and religious sites that he visited. *Tahkt-i-Sulayman*, which means “Throne of Solomon,” is an ancient circular shaped shrine located in West Azerbaijan, Iran. To add to the mystery, though the title is very specific, Stella insisted there is no relation between his painting and the location. 
 
@@ -20,3 +20,8 @@ Stella was an intuitive colorist but he never mixed his paints. The artist used 
 ## Protractors
 
 Stella worked on a series of paintings centered on the half-moon shape of a protractor.  He was inspired by circular shapes he saw while visiting ancient ruins in the Middle East. 
+
+---
+
+* ["What you see is what you see"](../stories/what-you-see-is-what-you-see.md)
+* [Minimalism: What You See is What You See](../stories/minimalism-what-you-see-is-what-you-see.md)
