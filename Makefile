@@ -20,7 +20,7 @@ art: artstories.json
 		doc+="\n\n---"; \
 		echo -e "$$doc" > "$$file"; \
 		jq -c -r '.views[] | .annotations[]' <<<$$json | grep -v '^$$' | while read -r note; do \
-			title=$$(jq -r '.title' <<<$$note); \
+			title=$$(jq -r '.title' <<<$$note | sed 's/ *$$//g'); \
 			description=$$(jq -r '.description' <<<$$note | sed 's/>n$$/>/g; s/>n</></g' | pandoc --no-wrap -f html -t markdown); \
 			note="\n\n## $$title\n\n$$description"; \
 			doc+="$$note"; \
