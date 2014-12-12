@@ -5,6 +5,22 @@ How well do you know your Roman history? Even the most avid armchair Romanologis
 
 ---
 
+## Inner Drama
+
+Rembrandt’s version of the Lucretia legend is pure psychological drama. Largely bypassing the sensational violence that other artists focused on, he lets her face—its averted gaze and eyes welled with tears—tell the story.
+
+## Painting with the Palette Knife
+
+Rembrandt used tecnhniques in painting Lucretia that suggest he created this work very quickly, possibly in a matter of days. He used his palette knife-- a tool with a thin, flexible blade-- to paint the majority of Lucretia’s clothing. To produce the shadows on her attire he scraped paint away to reveal the brown-colored ground (the base layer of a painting) below.
+
+## Call for Help?
+
+Why Lucretia is gripping the cord remains a mystery. Is she ringing for help, having second-guessed her suicide attempt? Holding herself up as life drains away? Metaphorically closing the curtain on her life? Whatever the interpretation, the cord was a common prop used by artists’ models.
+
+## Light Against Dark
+
+Rembrandt’s version of the Lucretia legend is pure psychological drama. Largely bypassing the sensational violence that other artists focused on, he lets her face—its averted gaze and eyes welled with tears—tell the story.
+
 ---
 
 * [Shifting Symbolism](../stories/shifting-symbolism.md)

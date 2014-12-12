@@ -13,10 +13,10 @@ Wiley posed his models to resemble the two crumpled figures at the base of the m
 
 Wiley’s works are based, in their style and scale, on monumental European paintings dating back to the 1600s. In presenting black people in this heroic context, he raises a pointed question: Why have so few black heroes received this treatment in art or the media?
 
-## Modern Adornment
-
-In European portraits, the rich and powerful often flaunted their wealth. Wiley updates the tradition, linking old opulence to today’s hip-hop style, by  highlighting the men’s jewelry.  
-
 ## Eyes Open
 
-Wiley paints the fallen men with their eyes open, looking directly at the viewer. This gives them an aura of ownership, of purchase—they’re aware of how they’re being seen. 
+Wiley paints the fallen men with their eyes open, looking directly at the viewer. This gives them an aura of ownership, of purchase—they’re aware of how they’re being seen.
+
+## Modern Adornment
+
+In European portraits, the rich and powerful often flaunted their wealth. Wiley updates the tradition, linking old opulence to today’s hip-hop style, by  highlighting the men’s jewelry.

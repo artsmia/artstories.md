@@ -1,6 +1,6 @@
 # [Esoteric Buddhism and the Five Great Wisdom Kings](http://artsmia.github.io/griot/#/stories/605)
 
-![](http://cdn.dx.artsmia.org/thumbs/tn_null.jpg)
+![](http://cdn.dx.artsmia.org/thumbs/tn_clark_1982002_00249.jpg)
 
 Buddhism, like Christianity and Islam, comes in many forms. Esoteric Buddhism is based on mysteries or secret teachings revealed only to those who receive spiritual training. It became a religious movement in 6th- and 7th-century India and reached Japan around 800 by way of China, introducing a vast pantheon of Indian deities to Japan. In esoteric belief, the historical Buddha is one of several manifestations of transcendental principles, such as enlightenment and creative energy.
 
@@ -36,7 +36,7 @@ Gundari (known as Kundali in India) is an enemy of devils and dispenses a kind o
 
 ---
 
-![](http://cdn.dx.artsmia.org/thumbs/tn_2014_TDX_MIAArtStories_159.jpg)
+![](http://cdn.dx.artsmia.org/thumbs/tn_null.jpg)
 
 In Esoteric Buddhist belief, there are many types of death, including “outer death,” or the end of life; and inner death, or ignorance. Daitoku Myoo, “the defeater of death,” helps his followers conquer death through enlightenment.
 

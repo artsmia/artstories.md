@@ -12,7 +12,7 @@ The monumental draped figures and perfect single point perspective in this earli
 
 ---
 
-![](http://cdn.dx.artsmia.org/thumbs/tn_null.jpg)
+![](http://cdn.dx.artsmia.org/thumbs/tn_mia_5014211.jpg)
 
 By 1570, El Greco begins to elongate and twist his figures.
 

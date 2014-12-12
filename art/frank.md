@@ -5,21 +5,21 @@
 
 ---
 
-## Reflection on Glasses
+## Who is Frank?
 
-The glasses reflect a view of the city from Close’s studio window and provide an entrance to a world beyond the painting.  His eyes offer a stoic, yet unassuming gaze that look over your shoulder.
+Frank James was an art student at the School of Visual Arts in New York during the time that Close taught there. Close painted the portrait in his studio from a photograph he took of Frank.
+
+## Familiar Face
+
+Ironically, Close is unable to recognize faces as he suffers from prosopagnosia, also known as face blindness.  Painting portraits is a way for him to remember how to recognize a person’s face.
 
 ## Facial Features
 
 Close tries to replicate how a camera or your eye would visually capture a face. If you look closely, Frank’s glasses and nose are in clear focus, while the neck, ears, and shirt gradually blur.
 
-## A Familiar Face
+## Reflection on Glasses
 
-Ironically, Close is unable to recognize faces as he suffers from prosopagnosia, also known as face blindness.  Painting portraits is a way for him to remember how to recognize a person’s face.
-
-## Who is Frank?
-
-Frank James was an art student at the School of Visual Arts in New York during the time that Close taught there. Close painted the portrait in his studio from a photograph he took of Frank.
+The glasses reflect a view of the city from Close’s studio window and provide an entrance to a world beyond the painting.  His eyes offer a stoic, yet unassuming gaze that look over your shoulder.
 
 ## Larger Than Life
 

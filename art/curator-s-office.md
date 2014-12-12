@@ -7,7 +7,7 @@
 
 ## Subtext
 
-The bookshelf in particular offers a special glimpse into Kestle’s personal and professional interests, among them *Basic Russian* and *Das Kapital*.  Whether readings for pleasure or politics is uncertain, but perhaps can be read in his eventual disappearance.
+The bookshelf in particular offers a special glimpse into Kestle’s personal and professional interests, among them *Basic Russian* and *Das Kapital*.  Whether readings for pleasure or politics is uncertain, but perhaps the answer can be read in his eventual disappearance.
 
 ## Out of the Office?
 
@@ -28,12 +28,6 @@ A well-used ashtray sits next to Dr. Kestle’s chair, exposing a time when smok
 ## Without a Trace!
 
 The forgotten luggage and muddied boots suggests the eerie vestiges of a trip no longer completed.
-
-<div>
-
- 
-
-</div>
 
 ## History of a Professional
 

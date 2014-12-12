@@ -7,15 +7,15 @@ His vision is a dark one. Francis Bacon painted several portraits of popes (this
 
 ## Inspiration
 
-Bacon used Diego Velázquez’s portrait of Pope Innocent X, made in 1650, as his inspiration for the series.  He considered it to be one of hte finest portraits ever created, rich with insight and tension—and many art critics agree.
+Bacon used Diego Velázquez’s portrait of Pope Innocent X, made in 1650, as his inspiration for the series. He considered it to be one of the finest portraits ever created, rich with insight and tension—and many art critics agree.
 
-## Who is he?
+## Who is He?
 
-The uncomfortable-looking man in question is Innocent X, who was the pope from 1644 until his death in 1655.  He was a politically shrewd and unscrupulous man whose actions contradicted the name he chose as pope: Innocent.
+The uncomfortable-loooking man in question is Innocent X, who was the pope from 1644 until his death in 1655. He was a politically shrewd and unscrupulous man whose actions contradicted the name he chose as pope: Innocent.
 
 ## The Screaming Popes
 
-In each of Bacon's papal portraits, the pope is screaming.  In a 2002 interview, Bacon said, "When I made hte Pope screaming, I didn't do it in the way I wanted to... I wanted to make hte mouth, with the beauty of its color and everything, look like one of the sunsets or something of Monet, and not just the screaming Popes.  If I did it again, which I hope ot God I never will, I would make it like a Monet."
+In each of Bacon’s papal portraits, the pope is screaming. In a 2002 interview, Bacon said, “When I made the Pope screaming, I didn't do it in the way I wanted to…I wanted to make the mouth, with the beauty of its color and everything, look like one of the sunsets or something of Monet, and not just the screaming Pope. If I did it again, which I hope to God I never will, I would make it like a Monet.”
 
 ---
 

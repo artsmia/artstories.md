@@ -16,7 +16,8 @@ Max Beckmann stands beside his wife, Quappi, and their dog, Butschy, inspecting 
 
 <div>
 
-### After the MIA acquired “Blind Man’s Buff,” museum director Richard Davis contacted Mathilde (Quappi) Beckmann for more information about the painting.
+After the MIA acquired "Blind Man's Buff," museum director Richard Davis contacted Mathilde (Quappi) Beckmann for more information about the painting.\
+ 
 
 </div>
 
