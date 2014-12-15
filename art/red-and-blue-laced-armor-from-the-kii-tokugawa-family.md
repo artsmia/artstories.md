@@ -17,17 +17,17 @@ The helmet bowl consists of 124 plates, an unusually high number, designed in an
 
 Japanese dragons aren’t always the bad guy. Usually depicted as large, wingless, snake-like creatures with clawed feet, they’re fearsome but fair, and bring wealth and good fortune.
 
-## White Tigers
+## Chinese Lions
 
-They were the great guardians of the Buddha’s teachings—and all of humankind. Depictions of male tigers showed them as protectors and preservers and were often placed in tombs to protect the dead from demons and other obstacles in the afterlife.  
+Chinese Lions (karashishi) frolicking among bloming peonies is a frequent motif in Japanese art. The lion is a protector guardian in Buddhism and king of beasts while the peony is the king of flowers.
 
 ## Phoenixes
 
 Phoenixes are good omens. Descending from heaven at the dawn of a new age, they arrive with radiant feathers and singing an enchanting song. They perform good deeds then return to their heavenly home until the next new age. A symbol of justice, obedience, and loyalty, the phoenix also represents both peace (when it appears) and disharmony (when it disappears).
 
-## Tortoises
+## Giant Tortoises
 
-Tortoises are born wearing a suit of armor, perhaps the reason they’re associated with long life and wisdom.  
+This is a special type of tortoise known as minogame for the seaweed that is growing on its back as a symbol of its long life.  
 
 ## Shoulder Guards
 

@@ -8,7 +8,7 @@ Laces, like they look, are complicated. They aren’t woven but are based on tra
 
 <video src='null'></video>
 
-In the late 1500s, there were two basic kinds of lace in Europe: needle laces, worked with needle and thread; and bobbin laces, derived from braiding techniques, particularly those used to create fabric trims.
+In the late 1500s, two basic kinds of lace emerged in Europe: needle laces, worked with needle and thread; and bobbin laces, derived from braiding techniques, particularly those used to create fabric trims.
 
 ---
 

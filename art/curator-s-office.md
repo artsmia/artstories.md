@@ -27,7 +27,7 @@ A well-used ashtray sits next to Dr. Kestle’s chair, exposing a time when smok
 
 ## Without a Trace!
 
-The forgotten luggage and muddied boots suggests the eerie vestiges of a trip no longer completed.
+The forgotten luggage and muddied boots suggests teh eerie vestiges of a trip no longer completed.
 
 ## History of a Professional
 

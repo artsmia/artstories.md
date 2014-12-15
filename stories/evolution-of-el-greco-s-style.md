@@ -2,7 +2,7 @@
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_null.jpg)
 
-Christ’s expulsion of the money changers was a familiar artistic theme during the so-called Counter-Reformation, when Catholics pushed back against Protestant reformers. To Catholics, it showed the church purifying itself, with the Protestants standing in for the money changers. El Greco painted nine versions of it, each one intensifying his Mannerist style of compositional tension, instability, elongated figures, bright colors, artificial poses and space, and heightened spirituality.
+Christ’s expulsion of the money changers was a familiar artistic theme during the Counter-Reformation, when Catholics pushed back against Protestant reformers. To Catholics, it showed the church purifying itself, with the Protestants standing in for the money changers. El Greco painted nine versions of it, each one intensifying his Mannerist style of compositional tension, instability, elongated figures, bright colors, artificial poses and space, and heightened spirituality.
 
 ---
 

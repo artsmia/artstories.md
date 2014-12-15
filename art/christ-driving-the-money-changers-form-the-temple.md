@@ -23,7 +23,7 @@ In a fit of rage, Jesus dumped the money changers’ tables, resulting in the up
 
 ## Jerusalem or Venice?
 
-The temple is in Jerusalem, but El Greco gives gives it the interior of an Italian church. Looking through the arch, we see what visitors to Venice would have seen in El Greco’s day.  
+The temple is in Jerusalem, but El Greco gives the interior of an Italian church. Looking through the arch, we see what visitors to Venice would have seen in El Greco’s day.  
 
 ## Mystery Men
 

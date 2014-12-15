@@ -24,3 +24,8 @@ The lightly incised bird at the base suggests the yogini’s power of flight.
 ## Curves as Strength
 
 Indian sculptures are frequently curvaceous, even sensual, going back to the earliest temple monuments. Ancient Indian texts speak of love and sexual satisfaction as one of the four goals of life, and it is clear that worldly practice and religious belief merged in public monuments. The veneration of fertility was embedded within sacred monuments from the inception of stone carving.  The voluptuous body of the MIA’s yogini is also a symbol of her feminine power, from which devotees derived strength.  
+
+---
+
+* [The Yogini’s Journey](../stories/the-yogini-s-journey.md)
+* [Architectural Context](../stories/architectural-context.md)

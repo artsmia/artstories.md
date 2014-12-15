@@ -9,7 +9,7 @@ Such finery created controversy in Calvinist Holland, where Protestant preachers
 
 ## Status Sword
 
-In this day and age swords were worn largely to convey rank and status, not for combat. Here, a looped pile of gold thread decorates the sash of the sword, its handle just visible below the left hand.
+In the day and age of this painting, swords were worn largely to convey rank and status, not for combat. Here, a looped pile of gold thread decorates the sash of the sword, the handle of the sword is just visible below the left hand.
 
 ## Ribbon Trim
 

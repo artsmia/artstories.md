@@ -13,19 +13,19 @@ This desk is the ultimate DIY project. Behind the polish and classic looks are r
 
 Howard made creative use of tobacco boxes inside the desk. A label in the topmost cubbyhole reveals its origin: “Blackwell’s Genuine/BULL DURHAM,” a brand of loose-leaf tobacco from North Carolina that was popular with soldiers on both sides of the Civil War. 
 
-## Dentil "teeth"
-
-Those small, square “teeth” along the upper border of the desk are dentils, no brushing required, though Howard had evidently brushed up on Federal design. The colonial American style featured dentils—originally used in ancient Greek and Roman architecture—as decoration.
-
 ## Explosive flasks
 
 Small but deadly, these flasks held gunpowder for muzzle-loading guns in the days before pre-packed cartridges became standard in the 1800s. They may have been more dangerous for the shooter than the enemy: one accidental spark and the flask became a suicide bomb. 
 
-## Boat Shuttle
+## Dentil "teeth"
+
+Those small, square “teeth” along the upper border of the desk are dentils, no brushing required, though Howard had evidently brushed up on Federal design. The colonial American style featured dentils—originally used in ancient Greek and Roman architecture—as decoration.
+
+## Boat shuttle
 
 Not a way to cross water, this boat shuttle would neatly store thread for weaving. Howard would have seen a lot of these in the 1800s, when weaving was a booming business in America.
 
-## Hanging in the Balance
+## Hanging in the balance
 
 How do you weigh cotton? Hang a bale on one end of the scale and add weights to the other until everything balances out.
 

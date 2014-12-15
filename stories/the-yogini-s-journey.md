@@ -1,6 +1,6 @@
 # [The Yogini’s Journey](http://artsmia.github.io/griot/#/stories/569)
 
-![](http://cdn.dx.artsmia.org/thumbs/tn_mia_5037125.jpg)
+![](http://cdn.dx.artsmia.org/thumbs/tn_mia_6007432.jpg)
 
 How did a yogini wind up in Minneapolis? In 1926, the archaeologist Gabriel Jouveau-Dubreuil began shipping sculptures originally belonging to a single yogini temple in Tamil Nadu, India, to a Paris-based art dealer, leaving only a few behind in India. Over the next 29 years, Loo sold at least 12 of these sculptures to many private collectors and museums in America and Europe. 
 

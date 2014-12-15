@@ -21,6 +21,10 @@ The artist used a fine brush, sometimes the width of a single hair, to apply exq
 
 The artist used gold to highlight details and to animate the composition—make it come alive with gleaming vitality. He applied it to the painting then chiseled and pricked it to better bounce light and catch the eye.
 
+## Urdu Poetry
+
+Rhymed couplets on the back of the painting are written in Dakani Urdu, a language that incorporates elements of Persian, Arabic, Sanskrit, and Indian regional languages, attesting to the cosmopolitan nature of the Deccani courts.
+
 ---
 
 * [Copies](../stories/copies.md)
