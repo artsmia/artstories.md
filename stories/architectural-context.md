@@ -7,8 +7,7 @@ While we don’t know the exact location of the yogini temple, recent research s
 
 ---
 
-![](http://cdn.dx.artsmia.org/thumbs/tn_2014_TDX_MIAArtStories_077.jpg)
-![](http://cdn.dx.artsmia.org/thumbs/tn_.jpg)
+![](http://cdn.dx.artsmia.org/thumbs/tn_2014_TDX_MIAArtStories_097.jpg)
 
 The yogini, all by herself, is a powerful expression of Shakti, the feminine energy that causes all action in the universe. In the company of her fellow goddesses, perhaps as many as 108—a sacred number in India—their force would have created a truly sublime devotional experience. A devotee entering the temple would have felt hundreds of eyes trained upon her as she walked around the sacred space, receiving strength and courage from the watchful yoginis’ gaze.
 

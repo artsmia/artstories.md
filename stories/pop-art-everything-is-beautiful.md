@@ -2,7 +2,7 @@
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_null.jpg)
 
-Pop Art, so dubbed because of its roots in popular culture, marked a return to pictorial representation after decades of art that avoided recognizable imagery.
+Pop Art, so dubbed because of its roots in popular culture, marked a return to pictorial representation after decades of abstract art that avoided recognizable imagery.
 
 ---
 
@@ -20,6 +20,6 @@ The new media of television and photojournalism swamped the world with images in
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_null.jpg)
 
-Pop art reveled in celebrity, a popular culture phenomenon. The easy accessibility of such images contributed to the immense popularity of Pop Art with the public (after their initial shock), especially after the challenging works of the Abstract Expressionists.
+Pop art reveled in celebrity, a popular culture phenomenon. The easy accessibility of such images contributed to the immense popularity of Pop Art with the public (after their initial shock), its familiarity a relief after the challenging works of the Abstract Expressionists.
 
 ---

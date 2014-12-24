@@ -20,3 +20,8 @@ Wiley paints the fallen men with their eyes open, looking directly at the viewer
 ## Modern Adornment
 
 In European portraits, the rich and powerful often flaunted their wealth. Wiley updates the tradition, linking old opulence to today’s hip-hop style, by  highlighting the men’s jewelry.
+
+---
+
+* [Interview with Kehinde Wiley](../stories/interview-with-kehinde-wiley.md)
+* [Brazil’s Father of Aviation ](../stories/brazil-s-father-of-aviation.md)

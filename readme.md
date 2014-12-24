@@ -55,6 +55,7 @@
 * [Portrait of Mlle. Lange as Danae](art/portrait-of-mlle-lange-as-danae.md)
 * [Study for Portrait VI](art/study-for-portrait-vi.md)
 * [Some/One](art/some-one.md)
+* [Three Bathers](art/three-bathers.md)
 * [Warrior with Shield](art/warrior-with-shield.md)
 * [Coaci Inkstand](art/coaci-inkstand.md)
 * [Piranesi Side Table](art/piranesi-side-table.md)

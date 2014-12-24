@@ -5,7 +5,7 @@ He has taken their clothes and stuffed them in a bag under his arm. But it’s n
 
 ---
 
-## Bodies in water
+## Bodies in Water
 
 The artist used thin lines of silver to depict the sprays and swirls of a fountain, then coyly placed the fairies underwater. He suggested their nudity by painting faint outlines of their bodies beneath the ripples. Look carefully and you’ll discover they’re not alone, sharing the pool with fish.
 
