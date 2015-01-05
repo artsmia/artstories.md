@@ -23,7 +23,7 @@ To follow the *bushidō* code was to prepare for death—the ultimate honor and 
 ---
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_2014_TDX_MIAArtStories_046.jpg)
-![](http://cdn.dx.artsmia.org/thumbs/tn_.jpg)
+![](http://cdn.dx.artsmia.org/thumbs/tn_2014_TDX_MIAArtStories_056.jpg)
 
 Samurai warriors are most commonly associated with the Japanese sword known as a *katana*, a long, single-edged, curved blade mounted on a hilt meant for two hands and said to exact a deadly blow in one swipe. *Katana* were an important cultural symbol for samurai—present at the birth of a son or in the arms of a samurai being buried. A *katana* worn with a smaller companion sword became the samaurai’s trademark combination, known as *daishō*—literally “big/little.”
 

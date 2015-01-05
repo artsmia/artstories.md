@@ -7,7 +7,7 @@ Daikakuji was originally the villa of Emperor Saga (785–842). It was converted
 ---
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_2014_TDX_MIAArtStories_050.jpg)
-![](http://cdn.dx.artsmia.org/thumbs/tn_.jpg)
+![](http://cdn.dx.artsmia.org/thumbs/tn_2014_TDX_MIAArtStories_049.jpg)
 
 In the 1600s, the walls of several rooms in the Shōshinden building were painted by Kanō Sanraku and are now officially protected as national cultural property—visitors can peek into the rooms but not enter. The Peony Room is one of the most famous, with 18 sliding screens showing peonies amid rocks.
 

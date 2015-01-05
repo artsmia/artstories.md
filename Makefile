@@ -50,6 +50,7 @@ stories: artstories.json
 		jq -c -r '.pages[]' <<<$$json | grep -v '^$$' | while read -r page; do \
 			text=$$(jq -r '.text' <<<$$page); \
 			image=$$(jq -r '.image' <<<$$page); \
+			imageB=$$(jq -r '.imageB' <<<$$page); \
 			type=$$(jq -r '.type' <<<$$page); \
 			video=$$(jq -r '.video' <<<$$page); \
 			case $$type in \

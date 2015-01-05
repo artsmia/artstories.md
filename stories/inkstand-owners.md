@@ -7,7 +7,7 @@ Coaci worked only briefly—he died at 38 in 1794. But he had a reputation for e
 ---
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_mia_3000204.jpg)
-![](http://cdn.dx.artsmia.org/thumbs/tn_.jpg)
+![](http://cdn.dx.artsmia.org/thumbs/tn_mia_40078a.jpg)
 
 Who owned the inkstand has long been debated. The stand was commissioned by Marchese Luigi Ercolani, but on behalf of an unknown donor. And although it copied the pope’s monument, it may  never have been given to him—there’s no reference to Pius VI or crossed keys, the symbol of the papacy. After its stay with the papacy, the inkstand fell either into the possession of the king of Naples or of the Italian Republic. 
 
@@ -20,7 +20,7 @@ Rome was once famous for its silverwork but few pieces remain—many were melted
 ---
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_2014_TDX_MIAArtStories_150.jpg)
-![](http://cdn.dx.artsmia.org/thumbs/tn_.jpg)
+![](http://cdn.dx.artsmia.org/thumbs/tn_mia_5005067_001.jpg)
 
 Eventually, in 1930, the Italian senate gifted Coaci’s work to Umberto II, the Prince of Piedmont, who became the last king of Italy. The MIA acquired the work in 1969.
 

@@ -1,7 +1,7 @@
 # [Architectural Context](http://artsmia.github.io/griot/#/stories/571)
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_2014_TDX_MIAArtStories_077.jpg)
-![](http://cdn.dx.artsmia.org/thumbs/tn_.jpg)
+![](http://cdn.dx.artsmia.org/thumbs/tn_2014_TDX_MIAArtStories_072.jpg)
 
 While we don’t know the exact location of the yogini temple, recent research suggests it was located near Kanchipuram in the present-day Indian state of Tamil Nadu.  Still-standing Yogini temples from around the same time are circular and open to the sky, evoking the shape of a yogini chakra, which in yogic theory is an energy center along the spinal column of the body. 
 

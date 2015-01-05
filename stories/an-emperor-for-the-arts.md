@@ -13,7 +13,7 @@ Like other rulers around the world, Qianlong used art to solidify and communicat
 ---
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_mia_1004280.jpg)
-![](http://cdn.dx.artsmia.org/thumbs/tn_.jpg)
+![](http://cdn.dx.artsmia.org/thumbs/tn_mia_1004300.jpg)
 
 Emperor Qianlong himself was the biggest fan of jade in China’s history and the expensive carving of jade mountains was made possible by the political stability and unprecedented prosperity that the emperor oversaw. Demand for finely crafted jade objects rose with the emperor’s endorsement of the form, which he gave here with a seal and poem carved into the surface.
 

@@ -13,7 +13,7 @@ LeWitt wanted to see if he could remove his own imagination from the artistic pr
 ---
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_null.jpg)
-![](http://cdn.dx.artsmia.org/thumbs/tn_.jpg)
+![](http://cdn.dx.artsmia.org/thumbs/tn_null.jpg)
 
 LeWitt produced incomplete cube variations in at least five different formats. The process of working through the idea was the point. As he explained in 1967, “All the intervening steps, scribbles, sketches, drawings, failed work models, studies, thoughts, conversations are of interest. Those that show the thought process of the artist are sometimes more interesting than the final product.”
 

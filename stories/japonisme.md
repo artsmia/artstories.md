@@ -19,7 +19,7 @@ Woodcut prints by masters of *ukiyo-e* (Japanese “pictures of the floating wor
 ---
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_null.jpg)
-![](http://cdn.dx.artsmia.org/thumbs/tn_.jpg)
+![](http://cdn.dx.artsmia.org/thumbs/tn_null.jpg)
 
 Every artist inspired by Japanese art took something a little different from it. Degas adopted its style, if not its subject matter: extended layouts, uneven arrangements, aerial perspectives. Mary Cassatt, an American painter and a friend of Degas, reconsidered her own portrayal of women after seeing how their everyday lives were depicted in *ukiyo-e* prints.
 

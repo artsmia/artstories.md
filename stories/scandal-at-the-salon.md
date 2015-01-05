@@ -1,7 +1,7 @@
 # [Scandal at the Salon](http://artsmia.github.io/griot/#/stories/1146)
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_2014_TDX_MIAArtStories_283.jpg)
-![](http://cdn.dx.artsmia.org/thumbs/tn_.jpg)
+![](http://cdn.dx.artsmia.org/thumbs/tn_2014_TDX_MIAArtStories_275.jpg)
 
 Girodet was a rebel—arrogant, spoiled, quick to pick a fight. He rejected the ordered and moralizing compositions of his teacher, Jacques-Louis David. Here, Girodet’s *The Sleep of Endymion* splits from David’s depiction of the male nude as virile and heroic to show Endymion as something like a pin-up, reclining on a leopard skin: pure turn-on.
 

@@ -19,7 +19,7 @@ The pope’s screaming mouth, shattered pince-nez glasses, and bloodied eye were
 ---
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_null.jpg)
-![](http://cdn.dx.artsmia.org/thumbs/tn_.jpg)
+![](http://cdn.dx.artsmia.org/thumbs/tn_null.jpg)
 
 Bacon was also inspired by Titian’s Portrait of Filippo Archinto, in which a mysterious veil or curtain obscures half of the painting, blurring the subject. Bacon duplicates this smeared appearance, extending the curtain across the entire painting. His explanation: “I wanted to paint a head as if folded in on itself, like the folds of a curtain.”
 

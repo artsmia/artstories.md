@@ -1,7 +1,7 @@
 # [Delacroix's Palette](http://artsmia.github.io/griot/#/stories/1152)
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_mia_1006298.jpg)
-![](http://cdn.dx.artsmia.org/thumbs/tn_.jpg)
+![](http://cdn.dx.artsmia.org/thumbs/tn_mia_5001143.jpg)
 
 Compare the energy of *Convulsionists of Tangier* to the works of Delacroix’s contemporaries and you’ll understand why he’s considered one of the great colorists of the 19th century. Corot’s *Silenus*, in this same gallery, was displayed in the Salon of 1838 along with *Convulsionists*. Delacroix’s innovative color theories, as seen in the widely diverging palettes, make all the difference.
 

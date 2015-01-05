@@ -1,7 +1,7 @@
 # [Mystery of the Mummy](http://artsmia.github.io/griot/#/stories/236)
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_mia_2022753.jpg)
-![](http://cdn.dx.artsmia.org/thumbs/tn_.jpg)
+![](http://cdn.dx.artsmia.org/thumbs/tn_mia_2025112.jpg)
 
 In the early 20th century, museum staff used X-rays to peer inside Tashat’s mummy case, or *cartonnage*, and discovered that she was not alone: a second skull sat between her legs. Then, in 1983, Tashat became only the second mummy in the United States to undergo a CT scan, revealing something that made headlines in tabloids as well as scholarly journals.
 

@@ -13,7 +13,7 @@ Artists used the mathematical theories of perspective developed in Renaissance I
 ---
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_mia_4000201.jpg)
-![](http://cdn.dx.artsmia.org/thumbs/tn_.jpg)
+![](http://cdn.dx.artsmia.org/thumbs/tn_mia_4000207.jpg)
 
 Impressionist painters in the 1800s were inspired by optical science and the new field of color theory, the study of how light is reflected or absorbed. Monet, Seurat, and Pissarro all experimented with different ways to recreate these effects with paint. Steinkamp, in turn, was inspired by these Impressionist efforts to represent the light that reveals form, rather than the form itself.
 

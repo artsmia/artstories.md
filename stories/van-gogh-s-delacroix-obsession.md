@@ -15,7 +15,7 @@ Delacroix’s *Christ in the Garden of Olives*, from 1828, was one of his earlie
 ---
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_null.jpg)
-![](http://cdn.dx.artsmia.org/thumbs/tn_.jpg)
+![](http://cdn.dx.artsmia.org/thumbs/tn_null.jpg)
 
 In 1888, Van Gogh was living in Arles, hoping to create his colony for artists. He asked his brother Théo, an art dealer, to send him prints of Delacroix’s *Pieta* to decorate the rooms of a little yellow house he’d prepared for Gauguin. The print he received was a black-and-white lithograph that reversed the original composition. Van Gogh copied it with oils in 1889, while in the asylum, using the brilliant yellows and blues that he associated with Delacroix’s spirituality.
 

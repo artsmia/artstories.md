@@ -7,14 +7,14 @@ Rembrandt had two great loves in his life: his wife Saskia, who died at 29, and 
 ---
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_2014_TDX_MIAArtStories_288.jpg)
-![](http://cdn.dx.artsmia.org/thumbs/tn_.jpg)
+![](http://cdn.dx.artsmia.org/thumbs/tn_mia_5013801.jpg)
 
 It is tempting to imagine that Rembrandt turned the tragic story of Lucretia into an outlet for his personal grief. He painted the story twice in three years after the death of his lover, and both of his Lucretias resemble Hendrickje.
 
 ---
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_2014_TDX_MIAArtStories_285.jpg)
-![](http://cdn.dx.artsmia.org/thumbs/tn_.jpg)
+![](http://cdn.dx.artsmia.org/thumbs/tn_mia_5013801.jpg)
 
 The debate rages. Did Rembrandt intend to compare Hendrickje, steadfastly loyal in the face of public humiliation, to the virtuous Lucretia? Or do his Lucretias resemble Hendrickje simply because he had painted her so often? Or, does Lucretia resemble Hendrickje because the painter’s model was the couple’s 12-year-old daughter, Cornelia? The answers went to the grave with Rembrandt in 1669.
 

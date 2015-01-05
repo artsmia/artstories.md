@@ -21,7 +21,7 @@ Here we see a Tamil *thali*, hung on a thread dyed with turmeric, a spice often 
 ---
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_2014_TDX_MIAArtStories_095.jpg)
-![](http://cdn.dx.artsmia.org/thumbs/tn_.jpg)
+![](http://cdn.dx.artsmia.org/thumbs/tn_null.jpg)
 
 Just as people adorn themselves, they adorn temples and the statues of the gods within with flowers and gold. Ornaments donated to the gods could be a gift from a devotee’s personal collection or something crafted specifically for the statue, like a crown or golden sandals.
 

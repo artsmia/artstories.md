@@ -19,7 +19,7 @@ Delacroix’s orientalism rarely lapsed into erotic fantasies, later popularized
 ---
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_mia_5000274.jpg)
-![](http://cdn.dx.artsmia.org/thumbs/tn_.jpg)
+![](http://cdn.dx.artsmia.org/thumbs/tn_mia_5019466.jpg)
 
 During his visit to Morocco in 1832, Delacroix wrote extensively about the Moorish cemeteries that dotted the roadside outside Tangier’s city walls, one providing the setting for this painting. The woman wears the habit of a Moroccan Jew, but her state of casual undress is inconsistent with the fact that custom required she wrap herself in a veiled shroud when in public. She also towers over her male observers, and her frontal pose and enigmatic gaze project an image of classical calm and beauty, which Delacroix perpetually exalted in ancient sculpture and Moroccan women.
 

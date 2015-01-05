@@ -1,7 +1,7 @@
 # [Nature and Spirituality](http://artsmia.github.io/griot/#/stories/1119)
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_null.jpg)
-![](http://cdn.dx.artsmia.org/thumbs/tn_.jpg)
+![](http://cdn.dx.artsmia.org/thumbs/tn_null.jpg)
 
 Why did Van Gogh paint so many olive and cypress trees? Van Gogh, Paul Gauguin, and fellow painter Emile Bernard talked of creating art that consoles using imagery of “a purer and more serene nature,” instead of religious imagery. He wanted to show it was possible to paint the meaning of Christ in the Garden of Olives, the garden of Gethsemane where Christ prayed the night before his crucifixion, “without aiming straight for the historical Garden of Gethsemane.”
 
@@ -16,7 +16,7 @@ Van Gogh distrusted modern religious painting as much as he distrusted modern re
 ---
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_null.jpg)
-![](http://cdn.dx.artsmia.org/thumbs/tn_.jpg)
+![](http://cdn.dx.artsmia.org/thumbs/tn_null.jpg)
 
 At the same time that he began painting the olive groves surrounding the asylum, he began to paint the cypress trees that dotted the grounds. He was completely captivated, writing, “…it astonishes me that they have not been done as I see them. They are beautiful in line and proportion like an Egyptian obelisk. And the green has such a distinguished quality.”
 

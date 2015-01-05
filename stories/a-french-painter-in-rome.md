@@ -7,7 +7,7 @@ Poussin is known as one of the greatest French painters of all time, but he live
 ---
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_null.jpg)
-![](http://cdn.dx.artsmia.org/thumbs/tn_.jpg)
+![](http://cdn.dx.artsmia.org/thumbs/tn_null.jpg)
 
 In Poussin’s time, as in our own, Rome was scattered with ancient ruins— ground zero for classical connoisseurs. One of Poussin’s first patrons in Rome was Cassiano dal Pozzo, secretary to the Cardinal Barberini, one of the preeminent art collectors of his day. Pozzo hired artists to draw ancient sculptures for his *Museo Cartaceo*, or “Paper Museum,” a collection of more than 7,000 prints and drawings on subjects ranging from ancient art and archaeology to botany, geology, and zoology. Poussin may have contributed some of the drawings himself or at least studied his friend’s collection.
 
@@ -22,7 +22,7 @@ The painting remained in the possession of Cardinal Barberini’s family until 1
 ---
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_null.jpg)
-![](http://cdn.dx.artsmia.org/thumbs/tn_.jpg)
+![](http://cdn.dx.artsmia.org/thumbs/tn_null.jpg)
 
 Poussin was also greatly inspired by the sensual color and heightened emotion of more recent Italian painters whose work he encountered in Rome and Venice, especially Titian and Caravaggio.
 

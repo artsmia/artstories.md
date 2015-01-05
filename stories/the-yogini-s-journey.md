@@ -17,7 +17,7 @@ We can identify 19 of the sculptures originally belonging to the temple: 15 godd
 ---
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_2014_TDX_MIAArtStories_175.jpg)
-![](http://cdn.dx.artsmia.org/thumbs/tn_.jpg)
+![](http://cdn.dx.artsmia.org/thumbs/tn_2014_TDX_MIAArtStories_179.jpg)
 
 An exhibition in 2014 focusing on Yoga reunited the MIA’s Yogini with two of her counterparts in American museum collections for the first time in over half a century.     
 

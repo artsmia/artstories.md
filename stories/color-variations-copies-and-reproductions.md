@@ -13,7 +13,7 @@ A very rare blue version eliminates red and green, leaving only an intense blue 
 ---
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_2014_TDX_MIAArtStories_053.jpg)
-![](http://cdn.dx.artsmia.org/thumbs/tn_.jpg)
+![](http://cdn.dx.artsmia.org/thumbs/tn_2014_TDX_MIAArtStories_052.jpg)
 
 Woodblock printing remains popular—many modern reprints have been made with traditional methods and are widely available in the art market. 
 

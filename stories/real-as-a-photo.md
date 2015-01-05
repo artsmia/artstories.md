@@ -1,7 +1,7 @@
 # [Real as a Photo](http://artsmia.github.io/griot/#/stories/1097)
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_null.jpg)
-![](http://cdn.dx.artsmia.org/thumbs/tn_.jpg)
+![](http://cdn.dx.artsmia.org/thumbs/tn_null.jpg)
 
 Early photographers tried to take pictures that looked like paintings. By the late 1960s, painters were trying to reproduce photographs. Rejecting the painterly abstraction that had dominated the art scene in the 1940s and ’50s, its obsession with movement and the physical properties of paint, Photorealists craved the static, objective reality captured by a camera lens—literally “what we see.”
 

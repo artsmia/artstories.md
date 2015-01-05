@@ -1,7 +1,7 @@
 # [The Tale of the Tusk](http://artsmia.github.io/griot/#/stories/233)
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_111103_mia348_H7_3719.jpg)
-![](http://cdn.dx.artsmia.org/thumbs/tn_.jpg)
+![](http://cdn.dx.artsmia.org/thumbs/tn_111103_mia348_I5_3685.jpg)
 
 It’s a typical story: boy meets girl, girl rejects boy, boy puts a spell on her prize sheep. Though in the strange and beguiling story told in these tusk carvings, the boy is the Obi of Oboro, a sorcerer-ruler, and the girl is engaged to marry Oba Akengbud, another ruler. Here she has unwittingly followed her charmed ram to the Obi of Oboro, who’s wielding “packets” of magic to lure her.
 

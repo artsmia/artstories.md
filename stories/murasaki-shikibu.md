@@ -13,7 +13,7 @@ Murasaki had an unconventional youth growing up in her father’s home and learn
 ---
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_2014_TDX_MIAArtStories_162.jpg)
-![](http://cdn.dx.artsmia.org/thumbs/tn_.jpg)
+![](http://cdn.dx.artsmia.org/thumbs/tn_null.jpg)
 
 In her mid-twenties Murasaki married her second cousin, Fujiwara Nobutaka.  Nobutaka died two years after the birth of their only child during the Cholera epidemic.  According to legend, after her husband’s death Murasaki retreated to Ishiyama Temple in central Japan.  On a late summer night, while gazing at the moon, she was supposedly inspired to write *The Tale of Genji*.  Tis story of her retreat is simply myth but became a popular subject for Japanese artists who portray her at the temple looking to the moon for inspiration.
 

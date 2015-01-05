@@ -21,7 +21,7 @@ Fertility is prominent in early Indian temple iconography. At a Buddhist stupa i
 ---
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_mia_6007444.jpg)
-![](http://cdn.dx.artsmia.org/thumbs/tn_.jpg)
+![](http://cdn.dx.artsmia.org/thumbs/tn_2014_TDX_MIAArtStories_180.jpg)
 
 The same ornamental motifs appear on jewelry and temples, like the “face of glory” (*kirtimukha*) worn by many gods as arm bands and belts while also appearing on temple structurs. The fantastic aquatic animals that adorn our rudrakshamala also decorate temple doorways and lintels. In both cases, they animate the temple and the wearer, providing protection.  
 

@@ -7,7 +7,7 @@ When slaves were freed after the Civil War, many remained on plantations—as sh
 ---
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_mia_6001592.jpg)
-![](http://cdn.dx.artsmia.org/thumbs/tn_.jpg)
+![](http://cdn.dx.artsmia.org/thumbs/tn_mia_6001602.jpg)
 
 Howard is listed on the U.S. Census of 1870 just a few entries above Catherine McWillie and her remaining household (William McWillie died in 1869). The census indicates that Howard was a 65-year-old farm laborer born in Africa. His household included 60-year-old Sally Howard, presumably Howard’s wife, and 16-year-old Henry Howard, possibly their son, a farm laborer born in Mississippi. The difficult economic times are reflected in Howard’s use of make-do materials such as cotton crates and tobacco boxes for large but hidden portions of the writing desk.
 
