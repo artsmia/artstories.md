@@ -6,7 +6,7 @@ The *Ars Moriendi*, or “The Art of Dying,” first appeared during the Black D
 
 ---
 
-![](http://cdn.dx.artsmia.org/thumbs/tn_null.jpg)
+![](http://cdn.dx.artsmia.org/thumbs/tn_mia_6008087.jpg)
 ![](http://cdn.dx.artsmia.org/thumbs/tn_.jpg)
 
 Goya clearly borrowed some elements from the *Ars Moriendi* for the last of his many self-portraits—an ailing man in his bed, supported by a savior (here a doctor, not an angel). In this context, it is hard not to view the shadowy figures as demonic spirits.

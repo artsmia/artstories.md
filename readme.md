@@ -59,3 +59,4 @@
 * [Warrior with Shield](art/warrior-with-shield.md)
 * [Coaci Inkstand](art/coaci-inkstand.md)
 * [Piranesi Side Table](art/piranesi-side-table.md)
+* [Self-Portrait with Dr. Arrieta](art/self-portrait-with-dr-arrieta.md)

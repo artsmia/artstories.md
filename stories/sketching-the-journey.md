@@ -6,7 +6,7 @@ Delacroix documented the North Africa trip with watercolors, capturing the light
 
 ---
 
-![](http://cdn.dx.artsmia.org/thumbs/tn_null.jpg)
+![](http://cdn.dx.artsmia.org/thumbs/tn_mia_5019445.jpg)
 
 Delacroix mixed and matched his memories in this painting, made almost 20 years after *Convulsionists*. The view of Tangier in the upper left was based on sketches made during his visit there, but the shore in the foreground reflects what he saw in his native France. 
 

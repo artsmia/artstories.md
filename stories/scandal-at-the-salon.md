@@ -1,13 +1,13 @@
 # [Scandal at the Salon](http://artsmia.github.io/griot/#/stories/1146)
 
-![](http://cdn.dx.artsmia.org/thumbs/tn_null.jpg)
+![](http://cdn.dx.artsmia.org/thumbs/tn_2014_TDX_MIAArtStories_283.jpg)
 ![](http://cdn.dx.artsmia.org/thumbs/tn_.jpg)
 
 Girodet was a rebel—arrogant, spoiled, quick to pick a fight. He rejected the ordered and moralizing compositions of his teacher, Jacques-Louis David. Here, Girodet’s *The Sleep of Endymion* splits from David’s depiction of the male nude as virile and heroic to show Endymion as something like a pin-up, reclining on a leopard skin: pure turn-on.
 
 ---
 
-![](http://cdn.dx.artsmia.org/thumbs/tn_null.jpg)
+![](http://cdn.dx.artsmia.org/thumbs/tn_2014_TDX_MIAArtStories_294.jpg)
 
 Girodet was a student at the Royal Academy of Painting and Sculpture in Paris, the top art school in France. Although Girodet rebelled against the conventions of his time—and his teacher—his works were accepted in the periodic Salon exhibitions sponsored by the Academy and he won awards, including the coveted Rome Prize and the Prize of the Decade. 
 
@@ -19,7 +19,7 @@ Who commissioned Lange’s original portrait? Did she? Did her husband? What’s
 
 ---
 
-![](http://cdn.dx.artsmia.org/thumbs/tn_null.jpg)
+![](http://cdn.dx.artsmia.org/thumbs/tn_mia_47846a.jpg)
 
 Girodet did remove the painting—and sliced it into four pieces and had it delivered to Lange while she was hosting a party. Over the next two weeks, he created his new portrait of Lange as Danaë and installed it the same spot at the Salon. All of Paris drank in the drama.
 
@@ -33,7 +33,7 @@ There is some truth to this. Her husband, Michel-Jean Simons, a Belgian weapons 
 
 ---
 
-![](http://cdn.dx.artsmia.org/thumbs/tn_null.jpg)
+![](http://cdn.dx.artsmia.org/thumbs/tn_2014_TDX_MIAArtStories_277.jpg)
 
 Lange wasn’t the only one tainted by the portrait. It may have inspired caricaturists and underscored Girodet's name in fashionable Parisian circles, but he was also accused of greed and lack of taste. He tried to defend his art at first, but later hid the portrait and refused to show it even to his closest friends.
 

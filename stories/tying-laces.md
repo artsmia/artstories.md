@@ -12,7 +12,7 @@ In the late 1500s, two basic kinds of lace emerged in Europe: needle laces, work
 
 ---
 
-![](http://cdn.dx.artsmia.org/thumbs/tn_null.jpg)
+![](http://cdn.dx.artsmia.org/thumbs/tn_2014_TDX_MIAArtStories_264.jpg)
 
 In the 17th century, the Low Countries (now Belgium, the Netherlands, and Luxembourg) produced some of Europe’s finest bobbin lace, named for the bobbins on which the various lace threads were wound. Often worked over a curved pillow, it is also known as pillow lace.
 
@@ -24,7 +24,7 @@ The metallic lace applied to the center front opening of this man’s vest is ve
 
 ---
 
-![](http://cdn.dx.artsmia.org/thumbs/tn_null.jpg)
+![](http://cdn.dx.artsmia.org/thumbs/tn_2014_TDX_MIAArtStories_291.jpg)
 
 Bobbin lace was made by girls and young women whose careers were often cut short by failing eyesight, a common occupational hazard. Ironically, many believed that wearing lace was a sin but those who made it were regarded as paragons of virtue. In this painting by Casper Netscher, the sitter’s humble clothing and concentration imply the industry, domesticity, and quiet composure for which lace makers were praised.
 

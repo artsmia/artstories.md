@@ -7,6 +7,14 @@
 
 ---
 
+## Spring and Summer
+
+test annotation, you can delete this roma
+
+## Autumn and Winter
+
+<span>another test annotation, to be deleted</span>
+
 ---
 
 * [Murasaki Shikibu](../stories/murasaki-shikibu.md)
