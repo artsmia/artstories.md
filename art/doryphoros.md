@@ -13,7 +13,7 @@ The ideal body. We all want it, and our never-ending struggle to get it sells ma
 
 At six-foot-six, The Doryphoros silently struts his stuff. With a 19.5-inch neck, a 46-inch chest, and a 40-inch waist, he is a force to be reckoned with. Polykleitos used a 1 to 7 head-to-body ratio for this statue. Another exemplar of male proportion, Barbie’s boyfriend, Ken, is much more slender: blown up to six-foot-six he would only have a 40-inch chest and 28-inch waist.
 
-## The Doryphoros effect
+## The Doryphoros Effect
 
 The Doryphoros composition heavily influenced Greek and Roman art, which in turn affected Western art and the use of proportions even in architecture. Leonardo da Vinci’s famous Vitruvian Man is based on the Roman architect Vitruvius’ writings—which reflect Polykleitos’s ideas.
 

@@ -7,7 +7,7 @@ You wouldn’t use this inkstand to write your grocery list. At more than two fe
 
 ## The Quirinal Plaza
 
-The inkstand is a precise miniature copy of the monument in the Quirinal Piazza, featuring a Roman obelisk—unearthed in 1783 near the Great Mausoleum of Emperor Augustus—and two large statues of the Gemini twins, Castor and Pollux, which had been commissioned by Constantine the Great, the first Christian emperor of Rome. 
+The inkstand is a precise miniature copy of the monument in the Quirinal Piaza, featuring a Roman obelisk—unearthed in 1783 near the Great Mausoleum of Emperor Augustus—and two large statues of the Gemini twins, Castor and Pollux, which had been commissioned by Constantine the Great, the first Christian emperor of Rome. 
 
 ## Leather Case
 
@@ -21,10 +21,6 @@ The inkwell is rigged with delightful surprises. A lever slides the Gemini twins
 
 Another lever moves two birds together for a kiss.
 
-## Hidden Illusions
-
-Perhaps the most exciting secret is a compartment etched with tromp l’oeil (French for an optical illusion that “fools the eye”). The imagery includes Coaci’s calling card with a picture of the ruined Temple of Venus (actually a bath) in Baia, Italy; Salvator Rosa’s drawing of an old warrior; a roscone (a stylized rosette commonly found on antique temples); and a musical score that may have been composed by Coaci himself.
-
 ## Hidden Functionality
 
 The Coaci Inkstand is, unbelievably, quite functional. The marble base also doubles as a desk. 
@@ -32,6 +28,10 @@ The Coaci Inkstand is, unbelievably, quite functional. The marble base also doub
 ## Goddess of the Arts
 
 The inkwell is full of references to the goddess Minerva, the ancient Roman name for Athena. She was associated with handicrafts and the arts, as well as classical learning and wisdom. Here, the lion holds a serpent—a common symbol of Minerva—in its jaws. 
+
+## Hidden Illusions
+
+Perhaps the most exciting secret is a compartment etched with tromp l’oeil (French for an optical illusion that “fools the eye”). The imagery includes Coaci’s calling card with a picture of the ruined Temple of Venus (actually a bath) in Baia, Italy; Salvator Rosa’s drawing of an old warrior; a roscone (a stylized rosette commonly found on antique temples); and a musical score that may have been composed by Coaci himself.
 
 ---
 

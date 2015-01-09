@@ -60,3 +60,6 @@
 * [Coaci Inkstand](art/coaci-inkstand.md)
 * [Piranesi Side Table](art/piranesi-side-table.md)
 * [Self-Portrait with Dr. Arrieta](art/self-portrait-with-dr-arrieta.md)
+* [Second-Hand Reading](art/second-hand-reading.md)
+* [Abbott &amp; Cordova, 7 August 1971](art/abbott-amp-cordova-7-august-1971.md)
+* [Melencolia I](art/melencolia-i.md)

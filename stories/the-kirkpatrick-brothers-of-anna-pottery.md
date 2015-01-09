@@ -12,7 +12,7 @@ The Kirkpatrick’s progressive stance on everything from booze to race relation
 
 ---
 
-![](http://cdn.dx.artsmia.org/thumbs/tn_null.jpg)
+![](http://cdn.dx.artsmia.org/thumbs/tn_2014_TDX_MIAArtStories_186.jpg)
 
 Brother Wallace’s affection for snakes went beyond art to real obsession. He collected snakes, advertising for them in local farm journals and exhibiting them by the hundreds at Anna Pottery. A publicity stunt? Perhaps. But he seemed to genuinely like the slithery serpents. 
 

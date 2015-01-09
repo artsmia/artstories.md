@@ -15,9 +15,3 @@ Rainstorm beneath the Summit. The foot of Mt. Fuji is rendered in darkness, sugg
 Hokusai’s *Mount Fuji View Plain in Owari Province* shows a worker sealing the seams of a huge tub throw with a tiny Mt. Fuji in the far distance.
 
 ---
-
-![](http://cdn.dx.artsmia.org/thumbs/tn_null.jpg)
-
-Rainstorm beneath the Summit. The foot of Mt. Fuji is rendered in darkness, suggesting a raging storm that is underscored by a dramatic red bolt of lightning.
-
----

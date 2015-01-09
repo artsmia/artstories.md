@@ -24,3 +24,8 @@ The MIA’s Three Bathers was likely a study for Bathers with a Turtle, a simila
 ## Day at the Beach
 
 Matisse painted this beach scene in Collioure, a village on the coast of southern France.
+
+---
+
+* [Evolution of Style](../stories/evolution-of-style.md)
+* [Draftsman, Printmaker, Book Illustrator, Sculptor](../stories/draftsman-printmaker-book-illustrator-sculptor.md)

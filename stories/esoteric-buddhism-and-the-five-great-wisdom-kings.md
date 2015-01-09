@@ -1,6 +1,6 @@
 # [Esoteric Buddhism and the Five Great Wisdom Kings](http://artsmia.github.io/griot/#/stories/605)
 
-![](http://cdn.dx.artsmia.org/thumbs/tn_clark_1982002_00249.jpg)
+![](http://cdn.dx.artsmia.org/thumbs/tn_2014_TDX_MIAArtStories_296.jpg)
 
 Buddhism, like Christianity and Islam, comes in many forms. Esoteric Buddhism is based on mysteries or secret teachings revealed only to those who receive spiritual training. It became a religious movement in 6th- and 7th-century India and reached Japan around 800 by way of China, introducing a vast pantheon of Indian deities to Japan. In esoteric belief, the historical Buddha is one of several manifestations of transcendental principles, such as enlightenment and creative energy.
 
@@ -24,7 +24,7 @@ Gōzanze (known as Trailokyavijaya in India) keeps three worlds under control: t
 
 ---
 
-![](http://cdn.dx.artsmia.org/thumbs/tn_2014_TDX_MIAArtStories_158.jpg)
+![](http://cdn.dx.artsmia.org/thumbs/tn_2014_TDX_MIAArtStories_297.jpg)
 
 Kongōyasha (known as Vajrayaksa in India) can subdue demons while earning the love and respect of others. He is represented with three faces and six arms—the front face has five eyes.
 
@@ -36,7 +36,7 @@ Gundari (known as Kundali in India) is an enemy of devils and dispenses a kind o
 
 ---
 
-![](http://cdn.dx.artsmia.org/thumbs/tn_null.jpg)
+![](http://cdn.dx.artsmia.org/thumbs/tn_clark_1982002_00248.jpg)
 
 In Esoteric Buddhist belief, there are many types of death, including “outer death,” or the end of life; and inner death, or ignorance. Daitoku Myoo, “the defeater of death,” helps his followers conquer death through enlightenment.
 
