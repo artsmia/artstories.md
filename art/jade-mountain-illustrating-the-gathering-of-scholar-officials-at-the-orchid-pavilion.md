@@ -17,6 +17,10 @@ By the end of the event, 26 participants had composed 37 poems. Wang Xizhi was a
 
 Jade carving offered another outlet for the Chinese love of mountains, which they associate with the tranquillity and harmony of otherworldliness and the longing of the cultivated individual to escape the mundane world to commune with nature.
 
+## Three Dimensional Landscape
+
+The jade mountain takes the familiar Chinese landscape painting into three dimensions. And just like a painted landscape, the emperor marked the mountain with his seal and a poem of his own.
+
 ---
 
 * [Jade Mountains](../stories/jade-mountains.md)

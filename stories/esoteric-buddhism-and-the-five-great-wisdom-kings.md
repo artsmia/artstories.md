@@ -6,33 +6,33 @@ Buddhism, like Christianity and Islam, comes in many forms. Esoteric Buddhism is
 
 ---
 
-![](http://cdn.dx.artsmia.org/thumbs/tn_null.jpg)
+![](http://cdn.dx.artsmia.org/thumbs/tn_clark_1982002_00249.jpg)
 
-The Five Great Wisdom Kings are the wrathful counterparts of the many incarnations of the Buddha. The oldest complete set of Wisdom Kings in Japan is at Kyoto’s Tōji Temple and dates from 839. In the center is Fudō, "The Immovable One.” On the right is Gōzanze, "The Conqueror of The Three Planes," and behind him is Kongōyasha, "The Devourer of Demons.” On the left is Gundari, "The Dispenser of Heavenly Nectar" and behind him Daiitoku, "The Defeater of Death.”
+The Five Great Wisdom Kings are the wrathful counterparts of the many incarnations of the Buddha. 
 
 ---
 
-![](http://cdn.dx.artsmia.org/thumbs/tn_null.jpg)
+![](http://cdn.dx.artsmia.org/thumbs/tn_mia_6000260.jpg)
 
-Fudō (known as Acala in India) is an incarnation of Dainichi Nyōrai, the All-encompassing Buddha, and one of the best-known deities of Japanese Esoteric Buddhism. He converts anger into salvation and carries a sword and a rope.
+Fudō (known as Acala in India), "The Immovable One," is an incarnation of Dainichi Nyōrai, the All-encompassing Buddha, and one of the best-known deities of Japanese Esoteric Buddhism. He converts anger into salvation and carries a sword and a rope.
 
 ---
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_2014_TDX_MIAArtStories_158.jpg)
 
-Gōzanze (known as Trailokyavijaya in India) keeps three worlds under control: the world of desire with hell-beings, the world of form, and the world of formlessness with four heavens. He usually is shown with three faces and eight arms.
+Gōzanze (known as Trailokyavijaya in India), "The Conqueror of The Three Planes," keeps three worlds under control: the world of desire with hell-beings, the world of form, and the world of formlessness with four heavens. He usually is shown with three faces and eight arms.
 
 ---
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_2014_TDX_MIAArtStories_297.jpg)
 
-Kongōyasha (known as Vajrayaksa in India) can subdue demons while earning the love and respect of others. He is represented with three faces and six arms—the front face has five eyes.
+Kongōyasha (known as Vajrayaksa in India), "The Devourer of Demons," can subdue demons while earning the love and respect of others. He is represented with three faces and six arms—the front face has five eyes.
 
 ---
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_2014_TDX_MIAArtStories_159.jpg)
 
-Gundari (known as Kundali in India) is an enemy of devils and dispenses a kind of celestial nectar of immortality. He has eight arms, and his ankles are usually wrapped with snakes.
+Gundari (known as Kundali in India), "The Dispenser of Heavenly Nectar," is an enemy of devils and dispenses a kind of celestial nectar of immortality. He has eight arms, and his ankles are usually wrapped with snakes.
 
 ---
 

@@ -5,17 +5,17 @@ This Japanese armor was probably never worn in battle. Too bad—it was frighten
 
 ---
 
+## Suji-bachi Helmet with Praying Mantis Forecrest
+
+The helmet bowl consists of 124 plates, an unusually high number, designed in an upside-down acorn shape. A praying mantis, gilded with gold, is poised as if to strike its prey. The helmet is signed by Saotome Iechika, a famous armorer during the late 1500s and early 1600s.
+
 ## Tokugawa Family Crest
 
 The Tokugawa clan’s triple hollyhock crest (Tokugawa aoi), similar to a three-leaf clover, appears on the hand-guards and the gyōyō, the leaf-shaped plates that protect the fastening cords of the cuirass. The crest indicates that the armor belonged to a Tokugawa family member.
 
-## Praying Mantis
-
-The helmet bowl consists of 124 plates, an unusually high number, designed in an upside-down acorn shape. A praying mantis, gilded with gold, is poised as if to strike its prey. The helmet is signed by Saotome Iechika, a famous armorer during the late 1500s and early 1600s.
-
 ## Shoulder Guards
 
-The guards are unusually large, made of curved scales that are lacquered and laced together (honkozane).
+The guards are unusually large, made of curved scales that are lacquered and laced together (*honkozane*).
 
 ## Phoenixes
 

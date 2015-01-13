@@ -33,10 +33,6 @@ How do you weigh cotton? Hang a bale on one end of the scale and add weights to 
 
 Not everything carved into the desk was a tool. Take these trade symbols, displayed outside stores in the 1800s to quickly note the services rendered inside. The glove on Howard’s desk was the trade sign for, you guessed it, a glove maker.
 
-## null
-
-Kirkwood eventually fell into ruin, and was demolished in the early 1900s. In her 1902 book, Historic Homes of Mississippi, Mrs. N.D. Dupress described Kirkwood Plantation as “A colonial pile with broad halls, large rooms, and conservatory, gardens and wide lawn. … It was taken down, the carved woodwork of the library was given to a church, together with the handsome stair-rail. ... Tall trees grow where once spacious halls and lofty rooms echoed.”
-
 ---
 
 * [The Raw Deal of Sharecropping](../stories/the-raw-deal-of-sharecropping.md)

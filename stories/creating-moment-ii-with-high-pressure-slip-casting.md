@@ -1,5 +1,7 @@
 # [Creating Moment II with High-pressure Slip-casting](http://artsmia.github.io/griot/#/stories/609)
 
+<video src='null'></video>
+
 <span> </span> 
 
 1-2. Joins three sections of plaster mold.

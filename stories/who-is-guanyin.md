@@ -2,11 +2,11 @@
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_mia_38268a.jpg)
 
-To the Chinese, Guanyin literally means “he who observes the sounds of the world. He is a bodhisattva, someone who has attained the highest level of enlightenment but delayed entering paradise in order to help others on Earth.
+To the Chinese, Guanyin literally means “he who observes the sounds of the world." He is a bodhisattva, someone who has attained the highest level of enlightenment but delayed entering paradise in order to help others on Earth.
 
 ---
 
-![](http://cdn.dx.artsmia.org/thumbs/tn_mia_38268a.jpg)
+![](http://cdn.dx.artsmia.org/thumbs/tn_100629_mia341_155807.jpg)
 
 Male, female—it doesn’t really matter. In popular Buddist belief, Guanyin can assume whatever gender and form is needed to liberate beings from ignorance and suffering.
 

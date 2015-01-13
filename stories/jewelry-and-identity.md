@@ -16,7 +16,7 @@ Jewelry often displays marital status, as demonstrated in this photo of a marrie
 ---
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_2014_TDX_MIAArtStories_088.jpg)
-![](http://cdn.dx.artsmia.org/thumbs/tn_null.jpg)
+![](http://cdn.dx.artsmia.org/thumbs/tn_mia_SlideScan_001258.jpg)
 
 Heavy *pambadam* earrings are associated with South India. In Tamil, *pambu* means “snake,” and these earrings are associated with snakes as symbols of protection and fertility. The abstract shapes of the earring are fashioned individually, and named for anatomical features of the snake. The entire fabrication process takes around 7 to 10 days.
 

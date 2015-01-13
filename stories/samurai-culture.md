@@ -1,5 +1,8 @@
 # [Samurai Culture](http://artsmia.github.io/griot/#/stories/601)
 
+![](http://cdn.dx.artsmia.org/thumbs/tn_null.jpg)
+![](http://cdn.dx.artsmia.org/thumbs/tn_null.jpg)
+
 Samurai are now synonymous with Japan, but in the long history of Japanese culture they are a relatively recent invention. In the 1100s, wealthy landowners began hiring warriors to protect their property—private armies for powerful clans. This screen illustrates a battle between the two most powerful armies, the Minamoto and Taira, who challenged the central government and battled each other for control of Japan.  Minamoto won, and his samurai-led government ruled Japan for the next 700 years.
 
 ---
