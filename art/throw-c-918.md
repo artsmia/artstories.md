@@ -5,7 +5,7 @@ The circular shapes marking the black surface only hint at the photograph’s or
 
 ---
 
-## No camera?
+## No Camera?
 
 This image lacks the fundamental elements of a typical photograph. There was no camera. No subject or composing. And no development of the picture in a darkroom. *Throw (C-918)* only meets the definition of photography because it uses light-sensitive, photographic paper.
 
@@ -13,7 +13,7 @@ This image lacks the fundamental elements of a typical photograph. There was no 
 
 Cameraless photography has existed since the medium’s invention in 1839.  In *New Zealand*, Anna Atkins, who is believed to be the first female photographer, created an early example of a “photogram.” She placed a physical plant on light-sensitive paper and exposed it to the sun. The chemical result is akin to an image that looks like a fossil, the white outlines of a plant against a blue background.  
 
-## Decisions, decisions
+## Decisions, Decisions
 
 Photography with a camera is about decisions. Where should I point it? At what angle? Below? Above? How far away should I stand? In *Throw (C-918)*, the artist suggests a different set of decisions for photography: What paper to use, what tool to mark it with, and how to move it. 
 

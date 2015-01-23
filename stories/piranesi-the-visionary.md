@@ -12,14 +12,14 @@ In his prints and drawings, Piranesi imagined fantastical worlds of looming arch
 
 ---
 
-![](http://cdn.dx.artsmia.org/thumbs/tn_2014_TDX_MIAArtStories_134.jpg)
+![](http://cdn.dx.artsmia.org/thumbs/tn_mia_2018650.jpg)
 
-null
+Piranesi's "Perspective of Arches, with a Smoking Fire, Plate 6 from Carceri d'Invenzione" (1749).
 
 ---
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_mia_5024076.jpg)
 
-null
+The realistic depiction of Canaletto's "Grand Canal from Palazzo Flangini to Palazzo Bembo" is a stark contrast to Piranesi's imaginative thinking.
 
 ---

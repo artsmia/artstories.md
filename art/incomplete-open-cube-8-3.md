@@ -17,7 +17,7 @@ Where’s the pedestal? This sculpture sits right on the floor, away from the wa
 
 Mathematicians believe there are 122 possible variations of the Incomplete Cube problem. LeWitt obsessed over this mathematical puzzle and produced all of the variations in a variety of formats, from drawings, photographs, and small-scale models to large-scale models like the piece here.
 
-## Structures, not Sculptures
+## Structures, Not Sculptures
 
 LeWitt sought to “remove the skin altogether and reveal the structure” of a cube with his open forms. He preferred the term “structures” instead of “sculptures” to describe his three-dimensional work.
 

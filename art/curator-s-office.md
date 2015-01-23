@@ -21,7 +21,7 @@ Before opening, Kestle’s office got a good “dusting”—that is, a sprinkli
 
 The paintings hanging in Kestle’s office are actual paintings purchased by the MIA at a local art show.  The paintings were relevant to the 1950’s art scene in Minnesota and help set the office in both time and place.
 
-## Smoke-free?
+## Smoke-Free?
 
 A well-used ashtray sits next to Dr. Kestle’s chair, exposing a time when smoking was permitted in the MIA’s offices, as well as in the museum itself.
 

@@ -1,4 +1,4 @@
-# [John Bradstreet: Minneapolis tastemaker](http://artsmia.github.io/griot/#/stories/1896)
+# [John Bradstreet: Minneapolis Tastemaker](http://artsmia.github.io/griot/#/stories/1896)
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_null.jpg)
 

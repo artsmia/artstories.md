@@ -39,5 +39,5 @@ Look at where you are looking from.  You are high above the scene.  Douglas to
 
 ---
 
-* [The Story behind the Photo](../stories/the-story-behind-the-photo.md)
+* [The Story Behind the Photo](../stories/the-story-behind-the-photo.md)
 * [1960's Protests](../stories/1960-s-protests.md)

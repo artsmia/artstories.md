@@ -5,7 +5,7 @@ Frank is deceiving. From afar, the portrait looks like a larger-than-life photog
 
 ---
 
-## Who is Frank?
+## Who Is Frank?
 
 Frank James was an art student at the School of Visual Arts in New York when Close taught there. Close painted the portrait in his studio from a photograph he took of Frank.
 

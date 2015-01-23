@@ -5,7 +5,7 @@ The ideal body. We all want it, and our never-ending struggle to get it sells ma
 
 ---
 
-## What defines beauty?
+## What Defines Beauty?
 
 “Beauty is in the eye of the beholder,” we often say. Followers of Polykleitos would have argued otherwise. Perfection, he said, is the result of harmonious proportions: those who attain it are akin to gods (or Tom Brady and Giselle, the modern equivalent). We value the same ideals today, whether it be Giselle’s high cheekbones or Brady’s square jaw.
 

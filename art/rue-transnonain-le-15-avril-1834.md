@@ -28,3 +28,8 @@ Government censors initially approved publication of *Rue Transnonain*, but King
 ## The Father
 
 The central and largest figure in the scene is the dead father, bathed in bright moonlight. As the head of the household, he represents the family, their security, and well-being and recalls traditional depictions of the dead Christ, linking the innocence of Jesus with that of the family. 
+
+---
+
+* [How Lithography Works](../stories/how-lithography-works.md)
+* [Honoré Daumier's Political Satire](../stories/honoré-daumier-s-political-satire.md)

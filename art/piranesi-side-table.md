@@ -7,9 +7,9 @@ The ancient Romans were supposedly logical, orderly, restrained. When European t
 
 ## Chimeras
 
-Piranesi was fascinated by Greek, Roman, and Egyptian motifs, which he incorporated into nearly all of his works. The table’s legs form chimeras, winged creatures that are part lion, part goat, and part serpent.  
+Piranesi was fascinated by Greek, Roman, and Egyptian motifs, which he incorporated into nearly all of his works. The table’s legs form chimeras, winged creatures that are part lion, part goat, and part serpent.
 
-## Ox skulls
+## Ox Skulls
 
 Piranesi had a thing for ox skulls, particularly the decorative, twirling horns, and argued that the ancients did, too. In Classical art, the skulls were often paired with wreaths to represent sacrificial oxen. 
 

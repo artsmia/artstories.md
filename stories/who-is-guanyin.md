@@ -1,4 +1,4 @@
-# [Who is Guanyin?](http://artsmia.github.io/griot/#/stories/846)
+# [Who Is Guanyin?](http://artsmia.github.io/griot/#/stories/846)
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_mia_38268a.jpg)
 
@@ -12,7 +12,7 @@ Male, female—it doesn’t really matter. In popular Buddist belief, Guanyin ca
 
 ---
 
-![](http://cdn.dx.artsmia.org/thumbs/tn_mia_38268a.jpg)
+![](http://cdn.dx.artsmia.org/thumbs/tn_null.jpg)
 
 In early Buddhist art, Guanyin’s identity was quite vague. But from the late sixth century onward, he/she was often depicted wearing a crown with a seated Buddha.
 

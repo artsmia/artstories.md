@@ -17,7 +17,7 @@ Alec Soth once worked at the MIA photographing the collection and developing pho
 
 Charles appears in Soth’s celebrated book, *Sleeping by the Mississippi*, which contains what one writer called “forty-six ruthlessly edited pictures.”  Soth travelled along America’s longest river, but few photographs actually show the Mississippi.  Instead, he shows river life through landscapes and its people.
 
-## Who is Charles?
+## Who Is Charles?
 
 Charles stands holding two toy airplanes.  Both name and planes, painted with red, white, and blue stars and stripes, links this Charles with Charles Lindbergh, the American aviator.  Soth also photographs Lindbergh’s childhood bed in his series.
 
@@ -27,4 +27,4 @@ Alec Soth follows a long line of artists and writers who took to the American ro
 
 ---
 
-* [null](../stories/null.md)
+* [Magnum Turns to Color](../stories/magnum-turns-to-color.md)

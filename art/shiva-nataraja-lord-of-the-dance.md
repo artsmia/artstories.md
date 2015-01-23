@@ -5,7 +5,7 @@ He dances wildly, his left leg lifting in a powerful, graceful gesture and his a
 
 ---
 
-## Demon or dwarf
+## Demon or Dwarf
 
 Shiva stands on the back of a fat, child-like creature clutching a snake. The creature’s identity is still debated. Some scholars believe it represents a dwarf, which turns up in early texts as an assistant to Shiva’s dance. Others argue it is a vanquished demon, named Apasmara or Mushalagan, that personifies ignorance.
 

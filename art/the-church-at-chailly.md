@@ -24,3 +24,8 @@ In this preliminary graphite study, now in the Yale University Art Gallery, Mill
 ## Pastel Tycoon
 
 This pastel was among the last works purchased by James J. Hill, the Minnesota railroad magnate. It arrived in St. Paul in the spring of 1916, along with another Millet pastel, *Watermill at the Foot of a Mountain, Allier*, just weeks before Hill's death on May 29, 1916.
+
+---
+
+* [Patron of Pastels](../stories/patron-of-pastels.md)
+* [The Empire Builder](../stories/the-empire-builder.md)

@@ -6,7 +6,7 @@ Van Gogh, like many Impressionist and Post-Impressionist artists, was profoundly
 
 ---
 
-![](http://cdn.dx.artsmia.org/thumbs/tn_null.jpg)
+![](http://cdn.dx.artsmia.org/thumbs/tn_2014_TDX_MIAArtStories_373.jpg)
 
 While in the Saint-Paul Asylum, Van Gogh related his interest in olive groves and the people who worked them to his take on modern art: “a providential meeting of the very distant antiquities and raw modernity.” It was a principle he believed to be at the heart of Delacroix’s art.
 
@@ -14,8 +14,8 @@ Delacroix’s *Christ in the Garden of Olives*, from 1828, was one of his earlie
 
 ---
 
-![](http://cdn.dx.artsmia.org/thumbs/tn_null.jpg)
-![](http://cdn.dx.artsmia.org/thumbs/tn_null.jpg)
+![](http://cdn.dx.artsmia.org/thumbs/tn_2014_TDX_MIAArtStories_362.jpg)
+![](http://cdn.dx.artsmia.org/thumbs/tn_2014_TDX_MIAArtStories_370.jpg)
 
 In 1888, Van Gogh was living in Arles, hoping to create his colony for artists. He asked his brother Théo, an art dealer, to send him prints of Delacroix’s *Pieta* to decorate the rooms of a little yellow house he’d prepared for Gauguin. The print he received was a black-and-white lithograph that reversed the original composition. Van Gogh copied it with oils in 1889, while in the asylum, using the brilliant yellows and blues that he associated with Delacroix’s spirituality.
 

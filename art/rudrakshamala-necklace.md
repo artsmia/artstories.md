@@ -17,7 +17,7 @@ The central amulet depicts the gods Shiva and Parvati seated on Shiva’s bull m
 
 A host of fantastic creatures populate the main amulet. A dwarf holds up Shiva’s bull, which is flanked by two leaping lions while a pair of celestial deities (*apsaras*) flies overhead. Twin *makaras* (mythical aquatic creatures) are in each corner, and a filigree depicting peacocks and floral motifs frames the amulet. 
 
-## A portable shrine
+## A Portable Shrine
 
 The bottom amulet opens and might have contained a miniature lingam (a symbol of Shiva) or sacred ash, allowing the necklace to double as a portable shrine. A row of lingams appears at the bottom and is surrounded by rubies.
 
@@ -25,7 +25,7 @@ The bottom amulet opens and might have contained a miniature lingam (a symbol of
 
 The amount of jewel work is extraordinary, with no less than 42 inset rubies and semiprecious green jewels. 
 
-## Goddess clasp
+## Goddess Clasp
 
 Indian artisans traditionally adorn works of art, both big and small, with intricate and hidden details. Though this clasp would have been somewhat obscured by the wearer’s neck, it is adorned by the goddess Kaumari, the female counterpart of the god Murugan, who rides a peacock mount. She is flanked by two female attendants.
 

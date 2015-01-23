@@ -20,6 +20,6 @@ Or take Botticelli’s The Birth of Venus (1486), another masterpiece of Renaiss
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_2014_TDX_MIAArtStories_141.jpg)
 
-Jean Auguste Dominique Ingres added vertebrae to his La Grande Odalisque (1814), as though his elongated figure of a harem woman was anatomically correct. A study by French physician, comparing the dimensions of human models to those in the painting, confirmed it’s not—her back is longer by nearly five vertebrae.
+Jean Auguste Dominique Ingres added vertebrae to his La Grande Odalisque (1814) in order to strengthen the life-like anatomical appearance of this harem woman. A study by French physician, comparing the dimensions of human models to those in the painting, confirmed it’s not—her back is longer by nearly five vertebrae.
 
 ---

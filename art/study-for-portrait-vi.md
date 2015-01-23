@@ -9,7 +9,7 @@ His vision is a dark one. Francis Bacon painted several portraits of popes (this
 
 Bacon used Diego Velázquez’s portrait of Pope Innocent X, made in 1650, as his inspiration for the series. He considered it to be one of the finest portraits ever created, rich with insight and tension—and many art critics agree.
 
-## Who is He?
+## Who Is He?
 
 The uncomfortable-loooking man in question is Innocent X, who was the pope from 1644 until his death in 1655. He was a politically shrewd and unscrupulous man whose actions contradicted the name he chose as pope: Innocent.
 

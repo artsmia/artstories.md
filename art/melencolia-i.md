@@ -7,7 +7,7 @@ Little was written about Albrecht Dürer's image when he made it in 1514, but ov
 
 ---
 
-## What is Melencolia?
+## What Is Melencolia?
 
 Melencolia is a variant spelling of "melancholy," which means sadness. It was believed to result from an excess of a bodily fluid known as "black bile." Though understanding of the body has changed, today's physicians would agree with their predecessors that depression is as much a chemical as it is an emotional condition.
 
@@ -23,7 +23,7 @@ The hourglass tells us that our time is running out. The bell will toll our deat
 
 The sum of the numbers in any row or column is the same as any other. Here they add up to 34, and other patterns of four work, too.
 
-## What is that Multi-Sided Block?
+## What Is That Multi-Sided Block?
 
 This shape, first recorded in Melencolia I, is called "Dürer’s Solid." It has eight sides: six pentagons and two equilateral triangles. It can be derived from the grid of the Magic Square.
 
@@ -38,3 +38,9 @@ Carpenters' tools litter the foreground, perhaps symbolizing the limits of phys
 ## Dürer's Monogram
 
 Dürer usually signed his work with a monogram. He used his first initial to make a stylized door or gate for that was the meaning of his surname.
+
+---
+
+* [Dürer and Melancholy](../stories/dürer-and-melancholy.md)
+* [How Engravings are Made](../stories/how-engravings-are-made.md)
+* [The Most Famous Engraving](../stories/the-most-famous-engraving.md)

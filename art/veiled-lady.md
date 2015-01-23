@@ -11,7 +11,7 @@ Her head and shoulders are polished smooth. But where the veil falls across the 
 
 ## Seeing through stone
 
-You can’t actually see through stone—or can you? Like a magician picking his props, sculptor Raffaelo Monti chose the right material to fool the eye: marble, so marvelously translucent that it has long been used to simulate skin, fabric, or in this case both.  
+You can’t actually see through stone—or can you? Like a magician picking his props, sculptor Raffaelo Monti chose the right material to fool the eye: marble, so marvelously translucent that it has long been used to simulate skin, fabric, or in this case both.
 
 ## Who is she?
 

@@ -1,15 +1,21 @@
 # [Minneapolis Institute of Arts: Then and Now](http://artsmia.github.io/griot/#/stories/1855)
 
-![](http://cdn.dx.artsmia.org/thumbs/tn_null.jpg)
+![](http://cdn.dx.artsmia.org/thumbs/tn_2014_TDX_MIAArtStories_310.jpg)
 ![](http://cdn.dx.artsmia.org/thumbs/tn_null.jpg)
 
-null
+From paper to plaster to stone, the MIA’s construction was brought together many visions and voices. With McKim, Mead, and White’s architectural plans in place, Clinton Morrison, one of the Society’s founding members, donated his family estate, Villa Rosa, as the site for the museum.  
 
 ---
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_null.jpg)
 
-null
+The MIA opened on January 7, 1915. Although only one-seventh of the original plan was built, the Society of Fine Arts was pleased to have a fine space to display and encourage the arts. 
+
+---
+
+![](http://cdn.dx.artsmia.org/thumbs/tn_null.jpg)
+
+The inaugural exhibitions included European and American paintings and decorative arts, Japanese prints, and contemporary American pictures.
 
 ---
 

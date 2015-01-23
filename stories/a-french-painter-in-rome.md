@@ -7,15 +7,8 @@ Poussin is known as one of the greatest French painters of all time, but he live
 ---
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_null.jpg)
-![](http://cdn.dx.artsmia.org/thumbs/tn_null.jpg)
 
-In Poussin’s time, as in our own, Rome was scattered with ancient ruins— ground zero for classical connoisseurs. One of Poussin’s first patrons in Rome was Cassiano dal Pozzo, secretary to the Cardinal Barberini, one of the preeminent art collectors of his day. Pozzo hired artists to draw ancient sculptures for his *Museo Cartaceo*, or “Paper Museum,” a collection of more than 7,000 prints and drawings on subjects ranging from ancient art and archaeology to botany, geology, and zoology. Poussin may have contributed some of the drawings himself or at least studied his friend’s collection.
-
----
-
-![](http://cdn.dx.artsmia.org/thumbs/tn_null.jpg)
-
-In 1627, Poussin had the opportunity to work for his friend Cassiano’s boss – Cardinal Barberini. The result of that commission was the painting we see here. The rest is history: just three years before, Poussin had arrived in Rome virtually an unknown artist. The success of his painting, “The Death of Germanicus,” cemented his reputation in the city.
+In 1627, Poussin had the opportunity to work for Cardinal Barberini. The result of that commission was the painting we see here. The rest is history: just three years before, Poussin had arrived in Rome virtually an unknown artist. The success of his painting, “The Death of Germanicus,” cemented his reputation in the city.
 
 The painting remained in the possession of Cardinal Barberini’s family until 1958, the year it was purchased by the MIA.
 

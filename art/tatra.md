@@ -27,6 +27,6 @@ The Tatra T87 has a powerful three-liter V8 engine, air-cooled and rear-mounted.
 
 ---
 
-* [How rare is the Tatra today?](../stories/how-rare-is-the-tatra-today.md)
+* [How Rare Is the Tatra Today?](../stories/how-rare-is-the-tatra-today.md)
 * [An Inside Look at the Tatra](../stories/an-inside-look-at-the-tatra.md)
 * [The Tatra, the Beetle, and Porsche](../stories/the-tatra-the-beetle-and-porsche.md)

@@ -18,7 +18,7 @@ The fabled “blood sweating” horse reportedly hailed from the Fergana region 
 
 ---
 
-![](http://cdn.dx.artsmia.org/thumbs/tn_2014_TDX_MIAArtStories_305.jpg)
+![](http://cdn.dx.artsmia.org/thumbs/tn_null.jpg)
 
 Could the Fergana horse have actually sweated blood, as the admiring Chinese claimed? Researchers today believe it’s possible, for two very different reasons, neither of them good: parasites under the skin or possibly burst blood vessels after a hard gallop.  
 

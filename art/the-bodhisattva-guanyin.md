@@ -31,4 +31,4 @@ For centuries in China, Guanyin was depicted as a female goddess. But here the b
 
 ---
 
-* [Who is Guanyin?](../stories/who-is-guanyin.md)
+* [Who Is Guanyin?](../stories/who-is-guanyin.md)

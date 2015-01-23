@@ -26,6 +26,6 @@ The medallion on the lower left refers to Lange’s greed and excessive desire. 
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_mia_6008826.jpg)
 
-The last medallion on the lower right ridicules the actress's pretension with an image from La Fontaine's fable: *The frog that wanted to be as big as the ox*. It’s ironically contrasted with the motto of King Louis XIV: Nec pluribus impar (Not inferior to any). The message? Lange was the equal of a king, in her eyes only. 
+The last medallion on the lower right ridicules the actress's pretension with an image from La Fontaine's fable: *The frog that wanted to be as big as the ox*. It’s ironically contrasted with the motto of King Louis XIV: *Nec pluribus impar* (Not inferior to any). The message? Lange was the equal of a king, in her eyes only. 
 
 ---
