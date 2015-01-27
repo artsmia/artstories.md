@@ -12,7 +12,7 @@ In other pieces, like “Karma”, Do Ho Suh examines the relationship between c
 
 ---
 
-<video src='null'></video>
+<video src='http://cdn.dx.artsmia.org/videos/artstories/Do_Ho_Suh_Preview_from_Season_2_of_ART21_'Art_in_the_Twenty-First_Century'_(2003)-xFiJRf-cGHY.mp4'></video>
 
 Do-Ho Suh’s work challenges museum spaces both in terms of scale, as with “Karma,” and with viewer interaction, as with “Floor” in which museum visitors are encouraged to walk across the piece. As such, the pieces call into question how our bodies occupy public spaces and interrogate the meaning of personal space.
 

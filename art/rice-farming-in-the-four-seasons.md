@@ -9,4 +9,4 @@ They once formed the walls of the so-called “Bamboo Room,” a reception chamb
 
 * [Rice ](../stories/rice.md)
 * [Daikakuji Temple](../stories/daikakuji-temple.md)
-* [null](../stories/null.md)
+* [Copying a Masterpiece](../stories/copying-a-masterpiece.md)

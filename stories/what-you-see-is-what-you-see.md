@@ -6,7 +6,7 @@ One of Stella’s most famous quotes could also serve as a motto for the Minimal
 
 ---
 
-<video src='null'></video>
+<video src='http://cdn.dx.artsmia.org/videos/artstories/Frank_Stella_-_1972.mp4'></video>
 
 In this 1972 video, MoMA Curator William Rubin introduces the work of Frank Stella. From his studio, Stella talks about his response to Abstract Expressionist paintings, critics who say his work is “unfeeling” and “cold,” and how he composes a painting with shapes and colors.
 

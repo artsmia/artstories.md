@@ -6,7 +6,7 @@ Goya became an official painter for the Spanish court in 1786 and was popular as
 
 ---
 
-![](http://cdn.dx.artsmia.org/thumbs/tn_null.jpg)
+![](http://cdn.dx.artsmia.org/thumbs/tn_mia_2019040.jpg)
 
 Goya was also an accomplished printmaker, and he used this more private art form to offer a dark commentary on the world. In 1799, he published a series of 80 prints called *Caprichos*, fantastical visions of society’s foibles and follies. “The sleep of reason produces monsters,” he tells us, like the winged creatures pictured here. Might they be related to the shadowy visions that would later haunt his sick bed?
 

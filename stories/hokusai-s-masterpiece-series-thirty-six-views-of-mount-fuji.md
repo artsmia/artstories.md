@@ -4,13 +4,19 @@ Despite its title, Hokusai’s celebrated *Thirty-six Views of Mount Fuji* actua
 
 ---
 
+![](http://cdn.dx.artsmia.org/thumbs/tn_mia_46412a.jpg)
+
 Rainstorm beneath the Summit. The foot of Mt. Fuji is rendered in darkness, suggesting a raging storm that is underscored by a dramatic red bolt of lightning.
 
 ---
 
+![](http://cdn.dx.artsmia.org/thumbs/tn_mia_70730a.jpg)
+
 *Under the Wave off Kanagawa*, better known as just *The Great Wave*, is the most familar Japanese artwork in existence. The location is believed to be near present-day Yokohama on the west side of Tokyo Bay. Hokusai surpassed previous depictions of this motif with his more dynamic and dramatic view of the stormy ocean.
 
 ---
+
+![](http://cdn.dx.artsmia.org/thumbs/tn_20021017_mia341_2210.jpg)
 
 Hokusai’s *Mount Fuji View Plain in Owari Province* shows a worker sealing the seams of a huge tub throw with a tiny Mt. Fuji in the far distance.
 

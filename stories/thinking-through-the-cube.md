@@ -19,7 +19,7 @@ LeWitt produced incomplete cube variations in at least five different formats. T
 
 ---
 
-<video src='null'></video>
+<video src='http://cdn.dx.artsmia.org/videos/artstories/Sol_LeWitt's_Incomplete_Open_Cubes.mp4'></video>
 
 Artist Sol LeWitt and curator Gary Garrels discuss LeWitt’s series of Incomplete Open Cubes.
 

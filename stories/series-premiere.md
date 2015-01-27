@@ -49,7 +49,7 @@ Monet’s earliest images of the footbridge crisply depict the entire scene. Lat
 ---
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_2014_TDX_MIAArtStories_269.jpg)
-![](http://cdn.dx.artsmia.org/thumbs/tn_null.jpg)
+![](http://cdn.dx.artsmia.org/thumbs/tn_2014_TDX_MIAArtStories_371.jpg)
 
 In his first water-lily series (1897–99), Monet painted the pond with its water lilies, bridge, and trees neatly divided by a fixed horizon, similar to his early studies of the Japanese bridge. Over time, his canvases focused more on the lilies and the reflection on the water—he looked down instead of across the scene. Monet eventually abandoned the confines of the easel itself, painting massive compositions over many feet of canvas.
 

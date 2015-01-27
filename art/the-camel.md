@@ -39,4 +39,4 @@ Animals, acrobats, and even the decorative floral embellishments seem to be frol
 
 ---
 
-* [Why tapestries?](../stories/why-tapestries.md)
+* [Why Tapestries?](../stories/why-tapestries.md)

@@ -24,7 +24,7 @@ Once a celebrated artist, Beckmann became anonymous in Amsterdam, frequenting it
 
 ---
 
-<video src='null'></video>
+<video src='http://cdn.dx.artsmia.org/videos/artstories/131021_mia334_0001.mp4'></video>
 
 *Blind Man’s Buff* was painted between September 1944 and October 1945, a time of air raids and lack of food, coal, and electricity. Much of the triptych was painted by candlelight. This short video gives an idea of the conditions under which Beckmann worked in his attic studio.
 

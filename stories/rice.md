@@ -6,19 +6,19 @@ Genetic research shows that all forms of Asian rice spring from a single domesti
 
 ---
 
-![](http://cdn.dx.artsmia.org/thumbs/tn_null.jpg)
+![](http://cdn.dx.artsmia.org/thumbs/tn_mia_34020a.jpg)
 
 In Japan, rice is more than food. It’s an essential part of society, and its cultivation has arguably shaped the country’s cultural values, such as the importance of attaining community consensus, harmony, and interdependence. Rice farming has traditionally been hard work requiring a lot of resources—villages would pool their labor and tap into shared irrigation systems. Individual decisions impacted the collective, so group decision-making and avoidance of conflict became vital to survival and success. This print by Hiroshige showing a full moon reflected in multiple rice paddies is an example of how the paddies of multiple farmers are interconnected and share the same water source.
 
 ---
 
-![](http://cdn.dx.artsmia.org/thumbs/tn_null.jpg)
+![](http://cdn.dx.artsmia.org/thumbs/tn_mia_31580a.jpg)
 
 Japanese cultural and national identity are indistinguishable from rice, and the annual yield is considered a barometer of national health and wellbeing. As both the political and religious figurehead of the Japanese state the Emperor performed religious functions revolved around rice cultivation, ritually tending a royal rice paddy on the imperial palace grounds in Tokyo. Here, the late Emperor Hirohito plants rice in the imperial paddy.
 
 ---
 
-![](http://cdn.dx.artsmia.org/thumbs/tn_null.jpg)
+![](http://cdn.dx.artsmia.org/thumbs/tn_mia_37568a.jpg)
 
 The 38^th^ Emperor of Japan, Tenchi (r. 661—671) wrote a famous poem after taking shelter from the rain in a rice farmer's hut, and looking on in admiration of his hardworking subjects:
 

@@ -19,7 +19,7 @@ Charles appears in Soth’s celebrated book, *Sleeping by the Mississippi*, whi
 
 ## Who Is Charles?
 
-Charles stands holding two toy airplanes.  Both name and planes, painted with red, white, and blue stars and stripes, links this Charles with Charles Lindbergh, the American aviator.  Soth also photographs Lindbergh’s childhood bed in his series.
+Charles stands holding two toy airplanes.  Both name and planes, painted with red, white, and blue stars and stripes, links this Charles with Charles Lindbergh, the American aviator.  Soth also photographs Lindbergh’s childhood bed in his series.
 
 ## Road Trip
 

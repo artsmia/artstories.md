@@ -6,7 +6,7 @@ Scenes from Su Shi’s life and literature, especially the scene of the *Odes to
 
 ---
 
-![](http://cdn.dx.artsmia.org/thumbs/tn_mia_6002945.jpg)
+![](http://cdn.dx.artsmia.org/thumbs/tn_mia_6019655.jpg)
 
 null
 

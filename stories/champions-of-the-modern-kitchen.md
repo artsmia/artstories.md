@@ -1,5 +1,11 @@
 # [Champions of the Modern Kitchen](http://artsmia.github.io/griot/#/stories/2145)
 
+![](http://cdn.dx.artsmia.org/thumbs/tn_null.jpg)
+
+By the late 1800s, the kitchen needed a makeover. Kitchens were a hodgepodge of equipment because many activities—cooking, bathing, sleeping—took place there. They were unsanitary, under-ventilated, and inefficient: Coal or wood stoves polluted the air, the table doubled as a work surface and dining space, and each feature of the kitchen (cupboards, sink, stove, etc.) was a stand-alone piece, placed in the room with little consideration to logical function.
+
+---
+
 ![](http://cdn.dx.artsmia.org/thumbs/tn_2014_TDX_MIAArtStories_319.jpg)
 ![](http://cdn.dx.artsmia.org/thumbs/tn_2014_TDX_MIAArtStories_318.jpg)
 
@@ -17,5 +23,11 @@ null
 ![](http://cdn.dx.artsmia.org/thumbs/tn_mia_1003547.jpg)
 
 Frankfurt kitchens designer  Schütte-Lihotzky studied train dining cars, ship galleys, and the studies of Christine Frederick. She knew that to reduce the burden of household work, every space must be utilized in the most logical, hygienic, and efficient manner—like a laboratory or factory. The kitchen was solely a food preparation space: metal surfaces allowed for easy cleaning; beech wood counters prevented bacteria; and a large window provided ventilation and fresh air. And everything was within arm’s reach, to saved the homeowner valuable time.
+
+---
+
+<video src='http://cdn.dx.artsmia.org/videos/artstories/kitcheneng1.mp4'></video>
+
+Promoters of the New Frankfurt project produced this six-minute film for middle and working class Germans. Their message: embrace the scientifically-redesigned kitchen of the future. 
 
 ---

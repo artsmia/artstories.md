@@ -12,7 +12,7 @@ By the time he was an old man, Goya had lost hope for the ideas of the Enlighten
 
 ---
 
-![](http://cdn.dx.artsmia.org/thumbs/tn_mia_6008087.jpg)
+![](http://cdn.dx.artsmia.org/thumbs/tn_mia_6008100.jpg)
 
 Enter Dr. Arrieta, whose devoted care brought Goya back to health. At the time, the Spanish King Ferdinand was forced to accept a constitution. And while this picture may be seen as a simple thank-you to Dr. Arrieta, it may also be a statement of hope—reason, in the form of modern medicine—potentially making the world a better place after all.
 

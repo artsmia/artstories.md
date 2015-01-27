@@ -19,7 +19,7 @@ In 1881, the Neo-Impressionist artist Georges Seurat studied three paintings fro
 
 ---
 
-<video src='null'></video>
+<video src='http://cdn.dx.artsmia.org/videos/artstories/Art_Inspires-_Willie_Cole_on_Delacroix.mp4'></video>
 
 Contemporary artist Willie Cole on Delacroix.
 

@@ -12,13 +12,13 @@ At the time, the Chinese were threatened by horse-riding invaders from the west.
 
 ---
 
-![](http://cdn.dx.artsmia.org/thumbs/tn_20020201_mia341_2280.jpg)
+![](http://cdn.dx.artsmia.org/thumbs/tn_2014_TDX_MIAArtStories_374.jpg)
 
 The fabled “blood sweating” horse reportedly hailed from the Fergana region in present-day Uzbekistan. This area was a horseman’s paradise, famous for exceptional steeds that were the envy of the Chinese to the east. 
 
 ---
 
-![](http://cdn.dx.artsmia.org/thumbs/tn_null.jpg)
+![](http://cdn.dx.artsmia.org/thumbs/tn_2014_TDX_MIAArtStories_375.jpg)
 
 Could the Fergana horse have actually sweated blood, as the admiring Chinese claimed? Researchers today believe it’s possible, for two very different reasons, neither of them good: parasites under the skin or possibly burst blood vessels after a hard gallop.  
 

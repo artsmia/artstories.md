@@ -14,6 +14,7 @@ The MIA opened on January 7, 1915. Although only one-seventh of the original pla
 ---
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_null.jpg)
+![](http://cdn.dx.artsmia.org/thumbs/tn_null.jpg)
 
 The inaugural exhibitions included European and American paintings and decorative arts, Japanese prints, and contemporary American pictures.
 

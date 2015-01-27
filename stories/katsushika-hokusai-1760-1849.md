@@ -12,7 +12,7 @@ Hokusai moved on to study under other artists and, for various reasons, frequent
 
 ---
 
-![](http://cdn.dx.artsmia.org/thumbs/tn_2014_TDX_MIAArtStories_160.jpg)
+![](http://cdn.dx.artsmia.org/thumbs/tn_mia_48104a.jpg)
 
 His most celebrated works are *Hokusai manga*, a series of sketch books, and his pictures of Mt. Fuji, as captured in the series *Thirty-six Views of Mount Fuji*. 
 

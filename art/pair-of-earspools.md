@@ -13,6 +13,10 @@ In the center of each ear spool, the artist sculpted a miniature scene of the ru
 
 The attendants flanking the ruler are in fact monkeys.  While still elaborately dressed, they stand to the side of the ruler and hold steady the caravan on which he rides.
 
+## Dressed to Impress
+
+The ruler and his two primary attendants distinguish themselves in crescent-shaped headdresses that you wouldn’t find at the local clothing mart. The ruler also has a ceremonial cup of chicha (corn beer) in his left hand and a fan of exotic Amazonian bird feathers in his right.
+
 ---
 
 * [Gold of the Andes](../stories/gold-of-the-andes.md)

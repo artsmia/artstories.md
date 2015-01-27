@@ -36,4 +36,4 @@ This is a special type of tortoise known as minogame for the seaweed that is gro
 ---
 
 * [Samurai Culture](../stories/samurai-culture.md)
-* [How to put on a suit of armor](../stories/how-to-put-on-a-suit-of-armor.md)
+* [How to Put on a Suit of Armor](../stories/how-to-put-on-a-suit-of-armor.md)

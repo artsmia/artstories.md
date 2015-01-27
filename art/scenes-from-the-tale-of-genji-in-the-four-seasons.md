@@ -18,4 +18,4 @@ test annotation, you can delete this roma
 ---
 
 * [Murasaki Shikibu](../stories/murasaki-shikibu.md)
-* [Two Women and a Man as Mitate of the Aoi's Story from the Tale of Genji](../stories/two-women-and-a-man-as-mitate-of-the-aoi-s-story-from-the-tale-of-genji.md)
+* [Two Women and a Man as Mitate](../stories/two-women-and-a-man-as-mitate.md)

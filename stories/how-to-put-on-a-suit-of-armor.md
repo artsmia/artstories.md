@@ -1,7 +1,7 @@
-# [How to put on a suit of armor](http://artsmia.github.io/griot/#/stories/599)
+# [How to Put on a Suit of Armor](http://artsmia.github.io/griot/#/stories/599)
 
-<video src='null'></video>
+<video src='http://cdn.dx.artsmia.org/videos/artstories/Armor.mp4'></video>
 
-null
+A demonstration of how to put on a Japanese suit of armor.
 
 ---

@@ -6,7 +6,7 @@ Mines in the Andes Mountains of South America yield gold, silver, tin and platin
 
 ---
 
-<video src='http://nga.gov.au/Exhibition/INCAS/Default.cfm?MnuID=3&amp;GalID=0'></video>
+<video src='http://cdn.dx.artsmia.org/videos/artstories/Peru_Empire_of_Hidden_Treasures_-_The_Beginning-XzMFpRp5pYo.mp4'></video>
 
 While the people of ancient Peru did not value gold as money, its symbolic connection to the sun gave whoever possessed it powerful spiritual currency.
 
@@ -18,7 +18,7 @@ The MIA occasionally hears from concerned visitors that the ear spools appear ta
 
 ---
 
-<video src='http://article.wn.com/view/2013/07/04/British_Museum_puts_on_El_Dorado_exhibition/&amp;sa=D&amp;usg=ALhdy2_2iXQCRQh240bsnXpdjPRsv8Oy4g'></video>
+<video src='http://cdn.dx.artsmia.org/videos/artstories/Depletion_gilding-_goldmaking_techniques_of_the_ancient_Colombians.mp4'></video>
 
 Spanish conquistadors thought they’d been duped. When melting down their booty they discovered that what they thought was pure gold was not. An alloy comprised of gold and copper was treated with acidic plant juice and crocodile dung to leach out the copper and leave an extremely thin layer of gold on the surface.
 

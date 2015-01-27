@@ -6,7 +6,7 @@ In 1953, Bacon’s artistic vision and technical ability brilliantly merged. He 
 
 ---
 
-![](http://cdn.dx.artsmia.org/thumbs/tn_null.jpg)
+![](http://cdn.dx.artsmia.org/thumbs/tn_2014_TDX_MIAArtStories_355.jpg)
 ![](http://cdn.dx.artsmia.org/thumbs/tn_null.jpg)
 
 In Study after Velázquez's Portrait of Pope Innocent X, Bacon is not paying homage so much as radically reshaping the Velázquez portrait to fit his take on our times. The authoritative figure of the Pope, sitting as if pinned to an electric chair, becomes anonymous, anxious, and jolted into involuntary motion by external forces or internal psychoses.

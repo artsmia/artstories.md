@@ -9,10 +9,6 @@ It’s not easy to keep horses in West Africa. They need a lot of food, clean wa
 
 The top army commanders of the kingdom of Mali were known as "the 16 slaves that carry the bow," even though they were more likely wealthy nobles than slaves. The bow and quiver—a case for holding arrows—were symbols of imperial power.
 
-## Top Gun
-
-The top army commanders of the kingdom of Mali were known as "the 16 slaves that carry the bow," even though they were more likely wealthy nobles than slaves. The bow and quiver—a case for holding arrows—were symbols of imperial power.
-
 ## Ready for Battle
 
 A warrior was equipped with a bow, two quivers, and a knife fastened to his upper arm. Their arrow tips were usually poisoned for battle.
@@ -23,7 +19,7 @@ The rider’s skull cap and beard were customary at the time, and may imply that
 
 ## Small Steed?
 
-The horse is unrealistically diminutive, relative to the rider, but the native African horse—the Barb or Berber horse, known for its hardiness and fiery temperament—actually is pretty small. Of course, its size may simply reflect the fact that the sculpture was carved from a single tree trunk, and the horse could only be as long as the trunk was wide.
+The horse is unrealistically diminutive, relative to the rider, but the native African horse—the Barb or Berber horse, known for its hardiness and fiery temperament—actually is pretty small. Of course, its size may simply reflect the fact that the sculpture was carved from a single tree trunk, and the horse could only be as long as the trunk was wide.
 
 ## How was it used?
 
@@ -32,3 +28,4 @@ The base of the sculpture presents a puzzle. The figure may have been a veranda 
 ---
 
 * [My Kingdom For a Horse!](../stories/my-kingdom-for-a-horse.md)
+* [The Real Deal?](../stories/the-real-deal.md)

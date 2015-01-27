@@ -5,19 +5,19 @@ Choose your weapon—or three. This halberd, a medieval multi-tasking hybrid of 
 
 ---
 
-## Deadly combination
+## Deadly Combination
 
 An axe to chop, a sword to pierce, a sharpened hook to pull riders off their horses—this trifecta of weapons was death on a stick. In fact, that staff ensured you couldn’t get close to someone wielding a halberd unless you had one of your own.
 
-## Just for looks
+## Just for Looks
 
 This halberd is an impressive weapon, not just for fighting but admiring. The extensive decoration, including delicately carved leafy tendrils, point to its ceremonial use as a symbol of power and prestige.
 
-## So FAR, so good
+## So FAR, so Good
 
 The letters FAR are etched on either side of the crossed staves. They stand for “Ferdinandus Archidux.”
 
-## What kind of coronet?
+## What Kind of Coronet?
 
 The crossed staves impale a coronet, or crown, through its middle. The coronet indicates a ruler and, depending on the type, what kind of ruler he or she is. This particular coronet is a Herzogskrone, or duke’s crown.  
 
@@ -27,6 +27,6 @@ Ferdinand I counted the Dukes of Burgundy among his ancestors—another celebrat
 
 ---
 
-* [Death by halberd](../stories/death-by-halberd.md)
+* [Death by Halberd](../stories/death-by-halberd.md)
 * [The Imperial Treasury](../stories/the-imperial-treasury.md)
 * [When women rule](../stories/when-women-rule.md)

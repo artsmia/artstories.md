@@ -17,6 +17,10 @@ As calming as the blue hue is, the paint was chosen for a specific purpose. Rese
 
 Aluminum containers held common cooking and baking ingredients for convenience and easy pouring. From top left to bottom right, the bins are labeled for: Coffee, salt, semolina, dried fruit, rice, oats, baking ingredients, fine sugar, noodles, barley and sugar.
 
+## Ironing board
+
+The Frankfurt Kitchen was created to make all types of prep work convenient, including ironing clothes.  A mounted ironing board hides against the wall: just pull down to use.
+
 ## Preparing the meal
 
 The majority of food preparation took place at the counter under the window. The cook could sit while peeling and cutting vegetables, and then push the scraps into a built-in receptacle to save space and maintain cleanliness.
@@ -32,10 +36,6 @@ The dish drying rack sits above the sink requiring one to merely reach upward fo
 ## Moving Light
 
 Don’t be caught in the dark. The ceiling light fixture is actually movable allowing one to have maximum light no matter where one is in the kitchen.
-
-## Ironing board
-
-The Frankfurt Kitchen was created to make all types of prep work convenient, including ironing clothes.  A mounted ironing board hides against the wall: just pull down to use.
 
 ---
 

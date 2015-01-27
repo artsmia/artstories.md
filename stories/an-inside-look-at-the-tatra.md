@@ -1,18 +1,18 @@
 # [An Inside Look at the Tatra](http://artsmia.github.io/griot/#/stories/1823)
 
-<video src='null'></video>
+<video src='http://cdn.dx.artsmia.org/videos/artstories/Meet_the_Tatra_T87.mp4'></video>
 
 In this first video of a three-part series, former MIA Curator of Design David Ryan introduces the Tatra and explains how its aerodynamic design fascinated and appealed to consumers. 
 
 ---
 
-<video src='null'></video>
+<video src='http://cdn.dx.artsmia.org/videos/artstories/Tatra_T87_-_Intelligent_Design.mp4'></video>
 
 In the second video, Ryan points out the exterior features that make the Tatra aerodynamic before opening the rear compartment to inspect the engine.
 
 ---
 
-<video src='null'></video>
+<video src='http://cdn.dx.artsmia.org/videos/artstories/Tatra_T87_-_In_the_Driver's_Seat.mp4'></video>
 
 <span>Ryan gets in the driver’s seat for a tour of the interior: the original upholstery, the sliding sunroof, and the symmetrical dashboard.</span>
 

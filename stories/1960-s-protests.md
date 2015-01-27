@@ -21,7 +21,7 @@ While under control of the Soviet Union, Czechoslovakia underwent the Prague Spr
 ![](http://cdn.dx.artsmia.org/thumbs/tn_2014_TDX_MIAArtStories_347.jpg)
 ![](http://cdn.dx.artsmia.org/thumbs/tn_2014_TDX_MIAArtStories_348.jpg)
 
-United States involvement in the Vietnam War was highly contested by the public.  Resistance stemmed from an overwhelming opposition to the commissioned draft as well as the people’s reaction to the media’s portrayal of the events in Vietnam.  Conflicting feelings led to years of protests, sit-ins, and marches against US involvement as well as this image showing the polarized groups of the American people.
+United States involvement in the Vietnam War was highly contested by the public.  Resistance stemmed from an overwhelming opposition to the commissioned draft as well as the people’s reaction to the media’s portrayal of the events in Vietnam.  Conflicting feelings led to years of protests, sit-ins, and marches against US involvement as well as these images showing the polarized groups of the American people.
 
 ---
 

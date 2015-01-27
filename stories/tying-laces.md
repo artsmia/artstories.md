@@ -1,12 +1,12 @@
 # [Tying Laces](http://artsmia.github.io/griot/#/stories/1115)
 
-<video src='null'></video>
+<video src='http://cdn.dx.artsmia.org/videos/artstories/Learn_How_To_Use_a_Spiders_Web_Filling_Stitch.mp4'></video>
 
 Laces, like they look, are complicated. They aren’t woven but are based on traditional adornments of woven cloth, like applied ornamental trimmings, embroidery, and cutwork. In cutwork, portions of a textile are cut away and the resulting "hole" is reinforced and filled with embroidery stitches.
 
 ---
 
-<video src='null'></video>
+<video src='http://cdn.dx.artsmia.org/videos/artstories/Art_of_Bobbin_Lace_-_Pieceful_Quilter.mp4'></video>
 
 In the late 1500s, two basic kinds of lace emerged in Europe: needle laces, worked with needle and thread; and bobbin laces, derived from braiding techniques, particularly those used to create fabric trims.
 

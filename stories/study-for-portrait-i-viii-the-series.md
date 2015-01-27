@@ -24,7 +24,7 @@ In the fourth image, he brings his hand to his face. Is he sneezing? Stifling a 
 
 ---
 
-![](http://cdn.dx.artsmia.org/thumbs/tn_null.jpg)
+![](http://cdn.dx.artsmia.org/thumbs/tn_2014_TDX_MIAArtStories_366.jpg)
 ![](http://cdn.dx.artsmia.org/thumbs/tn_null.jpg)
 
 The pope laughs heartily, baring his teeth in an unusual grimace in the fifth study. Is it an act of aggression, or simply mirth, akin to the famous photograph of Teddy Roosevelt?
@@ -44,7 +44,7 @@ Finally, he delivers a full-blown scream in the seventh image.
 
 ---
 
-![](http://cdn.dx.artsmia.org/thumbs/tn_null.jpg)
+![](http://cdn.dx.artsmia.org/thumbs/tn_2014_TDX_MIAArtStories_367.jpg)
 ![](http://cdn.dx.artsmia.org/thumbs/tn_null.jpg)
 
 In the final study, the pope twists his body and appears to push up his sleeve. Is he spoiling for a fight, or perhaps dismissing us with a widely recognized vulgar insult? Conversely, is he simply throwing his hand up in defeat as a gesture of resignation?

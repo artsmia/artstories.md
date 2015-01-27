@@ -7,11 +7,7 @@ He has a name you could only dream of: Daiitoku Myōō, Wisdom King of Awe-inspi
 
 ## Building a Deity
 
-The main figure is carved out of Japanese cypress in the multiple joined-block technique, rather than from a single piece of wood. The hollow body is formed from two separate pieces joined vertically down the middle. 
-
-## Remarkable Realism
-
-The bull’s hocks, on the back of the leg, don’t touch the ground, realistically showing the moment he raises his haunches as he stands up and demonstrating the artist’s extraordinary attention to detail. 
+The main figure is carved out of Japanese cypress in the multiple joined-block technique, rather than from a single piece of wood. The hollow body is formed from two separate pieces joined vertically down the middle.
 
 ## Demon Killer
 
@@ -28,6 +24,10 @@ The Wisdom King’s eyes are rock crystal, the clearest form of quartz. Two rock
 ## Restoration
 
 An inscription inside his head, on the back of the main face, indicates that restoration work was done in the Hōei era (1704–11). Parts of the arms and heads were probably also replaced at this time. The face on the left was kept in its original state. 
+
+## Remarkable Realism
+
+The bull’s hocks, on the back of the leg, don’t touch the ground, realistically showing the moment he raises his haunches as he stands up and demonstrating the artist’s extraordinary attention to detail.
 
 ---
 

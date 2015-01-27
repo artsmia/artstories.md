@@ -23,7 +23,7 @@ These prisoners look like character actors in a movie, their faces distinctive. 
 
 ## Still War Pictures
 
-War journalists typically pride themselves on capturing the frenetic, violent action of war, using small hand-held cameras that are easy to transport and shoot. [PHILIP JONES GRIFFITHS, 92.129.3] There was little action, however, at Buchenwald. Bourke-White’s pictures were taken with a large-format camera that was bulky but captured greater detail—like the barbs on the wire and the numbers stitched onto clothing.
+War journalists typically pride themselves on capturing the frenetic, violent action of war, using small hand-held cameras that are easy to transport and shoot. There was little action, however, at Buchenwald. Bourke-White’s pictures were taken with a large-format camera that was bulky but captured greater detail—like the barbs on the wire and the numbers stitched onto clothing.
 
 <div>
 

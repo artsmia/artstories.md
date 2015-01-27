@@ -6,7 +6,7 @@ Hatoum started her career producing video and performance art. Her work was inte
 
 ---
 
-<video src='null'></video>
+<video src='http://cdn.dx.artsmia.org/videos/artstories/Mona_Hatoum_presents_her_works-HD.mp4'></video>
 
 Here, Mona Hatoum discusses her barbed wire Cube series.
 

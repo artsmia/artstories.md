@@ -13,6 +13,8 @@ The composition offers a close-up view of the sacred 12,389-foot-high (3,776 m),
 
 Hokusai exaggerated the already imposing single peak of Mt. Fuji by making it much steeper than it actually is, creating a more dramatic appearance.
 
+## Morning Light
+
 ---
 
 * [Katsushika Hokusai (1760–1849)](../stories/katsushika-hokusai-1760-1849.md)
