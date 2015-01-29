@@ -10,7 +10,7 @@ Erhard Schön, German, c. 1491–1592, *Portrait of Albrecht Dürer*, 1527, woo
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_mia_6001360_Overlay.jpg)
 
-Dürer's understanding of melancholy drew from the writings of Marsilio Ficino (1433–1499), a prominent Italian philosopher. Ficino saw both pluses and minuses to the condition's tendency to stimulate thought and emotion. Melancholy could drive one mad. Yet it also produced the sensitivity required for creativity. Ficino wrote, "All truly outstanding men, whether distinguished in philosophy, in statecraft, in poetry or in the arts, are melancholics."
+Dürer's understanding of melancholy drew from the writings of Marsilio Ficino (1433–1499), a prominent Italian philosopher. Ficino saw both pluses and minuses to the condition's tendency to stimulate thought and emotion. Melancholy could drive one mad. Yet it also produced the sensitivity required for creativity. Ficino wrote, “All truly outstanding men, whether distinguished in philosophy, in statecraft, in poetry or in the arts, are melancholics.”
 
 Portrait of Marsilio Ficino, detail from Giorgio Varsari, Italian (Florence), 1511–1574, *Six Tuscan Poets*, 1544, oil on panel, The William Hood Dunwoody Fund 71.24
 

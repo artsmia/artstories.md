@@ -1,15 +1,9 @@
 # [Fukami Sueharu](http://artsmia.github.io/griot/#/stories/611)
 
-![](http://cdn.dx.artsmia.org/thumbs/tn_null.jpg)
-
-Born in Kyoto in 1947, Fukami Sueharu belongs to a generation of ceramic artists in postwar Japan devoted to the creation of sculptural ceramics, without adhering to traditional forms. Fukami is shown here working on *Sign of Spring*, in 1974, for which he received a prize at the 27th Kyoto Prefecture Arts and Crafts Exhibition.
-
----
-
 ![](http://cdn.dx.artsmia.org/thumbs/tn_2014_TDX_MIAArtStories_166.jpg)
 ![](http://cdn.dx.artsmia.org/thumbs/tn_2014_TDX_MIAArtStories_169.jpg)
 
-Before reaching the perfection of his pale-blue sculptures, Fukami traversed a “stony” path. Although he was fascinated by pale bluish glazed porcelain early on, there was a period when he experimented with stoneware and different ash glazes to create very different conceptual works. 
+Born in Kyoto in 1947, Fukami Sueharu belongs to a generation of ceramic artists in postwar Japan devoted to the creation of sculptural ceramics, without adhering to traditional forms.  Before reaching the perfection of his pale-blue sculptures, Fukami traversed a “stony” path. Although he was fascinated by pale bluish glazed porcelain early on, there was a period when he experimented with stoneware and different ash glazes to create very different conceptual works. 
 
 ---
 

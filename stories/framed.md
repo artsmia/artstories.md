@@ -1,6 +1,6 @@
 # [Framed](http://artsmia.github.io/griot/#/stories/1148)
 
-![](http://cdn.dx.artsmia.org/thumbs/tn_mia_6008823.jpg)
+![](http://cdn.dx.artsmia.org/thumbs/tn_mia_47846a.jpg)
 
 Girodet reused the frame from his first portrait of Lange, but replaced the four corner medallions—allegories referring to the actress’s beauty and talent—with satirical emblems.
 

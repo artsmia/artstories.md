@@ -25,14 +25,8 @@ Because of her growing reputation as a writer, Murasaki was later invited to bec
 
 ---
 
-![](http://cdn.dx.artsmia.org/thumbs/tn_2014_TDX_MIAArtStories_157.jpg)
+![](http://cdn.dx.artsmia.org/thumbs/tn_genji-stacked2.jpg)
 
 Murasaki is credited with producing three works: *The Tale of Genji*, *The Diary of Lady Murasaki* and *Poetic Memoirs*, a collection of 128 poems.  She is most well-known for *The Tale of Genji*, which is thought to have taken a decade to complete.  *Genji* is celebrated as a great depiction of the human spirit.  One translator, Helen Craig McCullough, writes, “…Murasaki Shikibu's unique genius has made the work for many a powerful statement of human relationships, the impossibility of permanent happiness in love ... and the vital importance, in a world of sorrows, of sensitivity to the feelings of others." 
-
----
-
-![](http://cdn.dx.artsmia.org/thumbs/tn_2014_TDX_MIAArtStories_157.jpg)
-
-Speculation surrounds the year of Murasaki’s death.  Scholars debate between 1014, the year of her father’s hasty return to Kyoto perhaps prompted by her death, to as late as 1025.  Within a century of her death, Murasaki was deemed a classical writer and today she is recognized as having written the first novel—ever.  In 2008, the 1,000 year anniversary of The Tale of Genji, the city of Kyoto hosted a year-long celebration of Murasaki’s beloved story.
 
 ---

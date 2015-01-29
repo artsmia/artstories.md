@@ -1,7 +1,7 @@
 # [Samurai Culture](http://artsmia.github.io/griot/#/stories/601)
 
-![](http://cdn.dx.artsmia.org/thumbs/tn_null.jpg)
-![](http://cdn.dx.artsmia.org/thumbs/tn_null.jpg)
+![](http://cdn.dx.artsmia.org/thumbs/tn_mia_6019743.jpg)
+![](http://cdn.dx.artsmia.org/thumbs/tn_mia_6019762.jpg)
 
 Samurai are now synonymous with Japan, but in the long history of Japanese culture they are a relatively recent invention. In the 1100s, wealthy landowners began hiring warriors to protect their property—private armies for powerful clans. This screen illustrates a battle between the two most powerful armies, the Minamoto and Taira, who challenged the central government and battled each other for control of Japan.  Minamoto won, and his samurai-led government ruled Japan for the next 700 years.
 
@@ -25,7 +25,7 @@ To follow the *bushidō* code was to prepare for death—the ultimate honor and 
 
 ---
 
-![](http://cdn.dx.artsmia.org/thumbs/tn_2014_TDX_MIAArtStories_046.jpg)
+![](http://cdn.dx.artsmia.org/thumbs/tn_2014_TDX_MIAArtStories_057.jpg)
 ![](http://cdn.dx.artsmia.org/thumbs/tn_2014_TDX_MIAArtStories_056.jpg)
 
 Samurai warriors are most commonly associated with the Japanese sword known as a *katana*, a long, single-edged, curved blade mounted on a hilt meant for two hands and said to exact a deadly blow in one swipe. *Katana* were an important cultural symbol for samurai—present at the birth of a son or in the arms of a samurai being buried. A *katana* worn with a smaller companion sword became the samaurai’s trademark combination, known as *daishō*—literally “big/little.”

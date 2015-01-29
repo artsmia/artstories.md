@@ -2,13 +2,7 @@
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_2014_TDX_MIAArtStories_296.jpg)
 
-Buddhism, like Christianity and Islam, comes in many forms. Esoteric Buddhism is based on mysteries or secret teachings revealed only to those who receive spiritual training. It became a religious movement in 6th- and 7th-century India and reached Japan around 800 by way of China, introducing a vast pantheon of Indian deities to Japan. In esoteric belief, the historical Buddha is one of several manifestations of transcendental principles, such as enlightenment and creative energy.
-
----
-
-![](http://cdn.dx.artsmia.org/thumbs/tn_clark_1982002_00249.jpg)
-
-The Five Great Wisdom Kings are the wrathful counterparts of the many incarnations of the Buddha. 
+Buddhism, like Christianity and Islam, comes in many forms. Esoteric Buddhism is based on mysteries or secret teachings revealed only to those who receive spiritual training. It became a religious movement in 6th- and 7th-century India and reached Japan around 800 by way of China, introducing a vast pantheon of Indian deities to Japan. In esoteric belief, the historical Buddha is one of several manifestations of transcendental principles, such as enlightenment and creative energy.  The Five Great Wisdom Kings are the wrathful counterparts of the many incarnations of the Buddha. 
 
 ---
 

@@ -11,7 +11,7 @@ This is the village of Chailly-en-Bière, up the road from Millet's hamlet, wher
 
 ## Cemetery Dispute
 
-Millet was buried in a cemetery near the Church of Chailly. He had railed against plans to demolish it: "These wretches actually intend to scatter the bones of their own families over the fields to make the potatoes grow! Oh, shameful and brutal hand of man!" Eventually the cemetery was moved—a tennis court stands where he was originally buried—and his remains wound up close to where he stood to depict this view of Chailly. 
+Millet was buried in a cemetery near the Church of Chailly. He had railed against plans to demolish it: “These wretches actually intend to scatter the bones of their own families over the fields to make the potatoes grow! Oh, shameful and brutal hand of man!” Eventually the cemetery was moved—a tennis court stands where he was originally buried—and his remains wound up close to where he stood to depict this view of Chailly. 
 
 ## Why Pastel?
 

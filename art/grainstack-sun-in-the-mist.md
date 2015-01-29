@@ -25,4 +25,3 @@ In his memoirs, Wassily Kandinsky reflected on the surprising impact of color in
 
 * [Japonisme](../stories/japonisme.md)
 * [Series Premiere](../stories/series-premiere.md)
-* [Art and Illusion](../stories/art-and-illusion.md)

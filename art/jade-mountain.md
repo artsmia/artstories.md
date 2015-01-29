@@ -23,5 +23,4 @@ The jade mountain takes the familiar Chinese landscape painting into three dimen
 
 ---
 
-* [Jade Mountains](../stories/jade-mountains.md)
 * [An Emperor for the Arts](../stories/an-emperor-for-the-arts.md)

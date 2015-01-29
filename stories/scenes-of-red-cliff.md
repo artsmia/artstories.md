@@ -12,12 +12,6 @@ null
 
 ---
 
-![](http://cdn.dx.artsmia.org/thumbs/tn_mia_6019655.jpg)
-
-null
-
----
-
 ![](http://cdn.dx.artsmia.org/thumbs/tn_mia_38944a.jpg)
 
 null

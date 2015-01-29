@@ -24,5 +24,3 @@ Scholars argue about whether the shadowy figures in the background are Goya’s 
 ---
 
 * [Tradition with a Twist](../stories/tradition-with-a-twist.md)
-* [Public Figure, Private Fears](../stories/public-figure-private-fears.md)
-* [Disillusionment in the Age of Reason](../stories/disillusionment-in-the-age-of-reason.md)

@@ -1,5 +1,7 @@
 # [Hokusai’s Masterpiece Series Thirty-six Views of Mount Fuji](http://artsmia.github.io/griot/#/stories/617)
 
+![](http://cdn.dx.artsmia.org/thumbs/tn_mia_36592a.jpg)
+
 Despite its title, Hokusai’s celebrated *Thirty-six Views of Mount Fuji* actually contains 46 designs that he created at the advanced age of 70. Mt. Fuji figures in all of them, sometimes boldly dominating the picture, sometimes discreetly tucked in back. It’s impossible to say now in what order the individual designs were put on the market and how long it took until all prints were available for purchase.
 
 ---
