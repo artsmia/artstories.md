@@ -21,6 +21,14 @@ Bradstreet used many Asian decorative details in this room, including dragons wi
 
 This carving of flying cranes resembles Chinese carvings in the eaves of the 17th-century reception hall in the second floor galleries at the MIA. Some of Bradstreet’s pieces were imported; others were made in his Minneapolis Craftshouse.
 
+## Doubly heavy piano
+
+This piano is a standard Steinway with a cypress case placed atop a partial original mahogany case. Dolphins, as they were thought to look in the 18th and 19th centuries, decorate each end. With its “double case,” it is incredibly heavy to move.
+
+## Cranes in the crannies
+
+This carving of flying cranes resembles Chinese carvings in the eaves of the 17th-century reception hall in the second floor galleries at the MIA. Some of Bradstreet’s pieces were imported; others were made in his Minneapolis Craftshouse.
+
 ---
 
 * [John Bradstreet: Minneapolis Tastemaker](../stories/john-bradstreet-minneapolis-tastemaker.md)

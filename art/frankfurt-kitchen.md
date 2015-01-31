@@ -39,5 +39,5 @@ Don’t be caught in the dark. The ceiling light fixture is actually movable all
 
 ---
 
-* [The New Frankfurt: Modern, Post WWI Suburbs](../stories/the-new-frankfurt-modern-post-wwi-suburbs.md)
+* [The New Frankfurt: Modern, Post-WWI Suburbs](../stories/the-new-frankfurt-modern-post-wwi-suburbs.md)
 * [Champions of the Modern Kitchen](../stories/champions-of-the-modern-kitchen.md)

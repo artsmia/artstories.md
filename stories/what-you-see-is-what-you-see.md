@@ -8,11 +8,11 @@ One of Stella’s most famous quotes could also serve as a motto for the Minimal
 
 <video src='http://cdn.dx.artsmia.org/videos/artstories/Frank_Stella_-_1972.mp4'></video>
 
-In this 1972 video, MoMA Curator William Rubin introduces the work of Frank Stella. From his studio, Stella talks about his response to Abstract Expressionist paintings, critics who say his work is “unfeeling” and “cold,” and how he composes a painting with shapes and colors.
+In this 1972 video, Museum of Modern Art Curator William Rubin introduces the work of Frank Stella. From his studio, Stella talks about his response to Abstract Expressionist paintings, critics who say his work is “unfeeling” and “cold,” and how he composes a painting with shapes and colors.
 
 ---
 
-<video src='null'></video>
+<video src='http://cdn.dx.artsmia.org/videos/artstories/Museum_in_Motion-_Hanging_Tahkt-I-Sulayman_Variation_II.mp4'></video>
 
 Watch as the MIA registration crew installs “Tahkt-I-Sulayman Variation II”.
 
