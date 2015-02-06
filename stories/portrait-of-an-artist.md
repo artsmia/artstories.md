@@ -8,7 +8,7 @@ Chuck Close explains why he focused on painting portraits throughout his artisti
 
 <video src='http://cdn.dx.artsmia.org/videos/artstories/Video4_Chuck_Close_on_his_physical_challenges.mp4'></video>
 
-Chuck Close was in an accident that paralyzed him from the waist down. Here, he explains how he perservered and adapted his methods to continue painting large-scale portraits while confined to a wheelchair.
+Chuck Close was in an accident that paralyzed him from the waist down. Here, he explains how he persevered and adapted his methods to continue painting large-scale portraits while confined to a wheelchair.
 
 ---
 

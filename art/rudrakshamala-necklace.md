@@ -7,7 +7,7 @@ Gleaming gold, luscious rubies, ornately cast designs and figuresâ€”who wouldnâ€
 
 ## Rudraksha Beads
 
-Rudra is another name for Shiva, and *aksha* refers to the eye. Legend has it that after a long period of meditation, Shiva cried a single tear, giving life to the Rudraksha tree. Fresh rudraksha berries are bright blue and eventually dry out to become the ridged beads used in necklaces. Rudraksha necklaces are also called rudrakshamala (garland of rudraksha).
+Rudra is another name for Shiva, and *aksha* refers to the eye. Legend has it that after a long period of meditation, Shiva cried a single tear, giving life to the Rudraksha tree. Fresh rudraksha berries are bright blue and eventually dry out to become the ridged beads used in necklaces. Rudraksha necklaces are also called *rudrakshamala* (garland of rudraksha).
 
 ## Shiva and Parvati (Umamahesvara)
 

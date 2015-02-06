@@ -8,7 +8,7 @@ During the Han dynasty, imperial envoys to Central Asia returned to court marvel
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_2014_TDX_MIAArtStories_305.jpg)
 
-At the time, the Chinese were threatened by horse-riding invaders from the west. So the Chinese Emperor Wu, who reigned from 141–87 BCE, became obsessed with these “heavenly horses” as a way to match the threat. Diplomats were dispatched, and later the military, to bring some back. 
+At the time, the Chinese were threatened by horse-riding invaders from the West. So the Chinese Emperor Wu, who reigned from 141–87 BCE, became obsessed with these “heavenly horses” as a way to match the threat. Diplomats were dispatched, and later the military, to bring some back. 
 
 ---
 

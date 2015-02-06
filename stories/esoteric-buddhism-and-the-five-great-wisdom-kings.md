@@ -32,6 +32,6 @@ Gundari (known as Kundali in India), "The Dispenser of Heavenly Nectar," is an 
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_clark_1982002_00248.jpg)
 
-In Esoteric Buddhist belief, there are many types of death, including “outer death,” or the end of life; and inner death, or ignorance. Daitoku Myoo, “the defeater of death,” helps his followers conquer death through enlightenment.
+In Esoteric Buddhist belief, there are many types of death, including “outer death,” or the end of life; and "inner death", or ignorance. Daitoku Myoo, “the defeater of death,” helps his followers conquer death through enlightenment.
 
 ---

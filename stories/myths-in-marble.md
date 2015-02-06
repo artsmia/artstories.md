@@ -8,7 +8,7 @@ Bertel Thorvaldsen is known as one of the best Neoclassical, or new classical, s
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_2014_TDX_MIAArtStories_229.jpg)
 
-Thorvaldsen’s Jason with the Golden Fleece was his breakthrough sculpture while working as a student in Rome in 1803. The story of Jason and the Golden Fleece is one of the oldest and most popular Greek myths. Here, Thorvaldsen presents the hereo after his journey to the edge of the known world to acquire the Golden Fleece, ready to head home and reclaim his rightful throne from his evil uncle.
+Thorvaldsen’s Jason with the Golden Fleece was his breakthrough sculpture while working as a student in Rome in 1803. The story of Jason and the Golden Fleece is one of the oldest and most popular Greek myths. Here, Thorvaldsen presents the hero after his journey to the edge of the known world to acquire the Golden Fleece, ready to head home and reclaim his rightful throne from his evil uncle.
 
 ---
 

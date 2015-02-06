@@ -20,8 +20,6 @@ Jewelry often displays marital status, as demonstrated in this photo of a marrie
 
 Heavy *pambadam* earrings are associated with South India. In Tamil, *pambu* means “snake,” and these earrings are associated with snakes as symbols of protection and fertility. The abstract shapes of the earring are fashioned individually, and named for anatomical features of the snake. The entire fabrication process takes around 7 to 10 days.
 
- 
-
-Many sculptures depict the gods with stretched earlobes, and nearly all women from Tamil Nadu stretched their earlobes until missionaries began to eradicate this fashion in the 19th century. Although the missionaries were not completely successful, stretched earlobes have become less common.
+Many sculptures depict the gods with stretched earlobes, and nearly all women from Tamil Nadu stretched their earlobes until missionaries began to eradicate this fashion in the 1800s. Although the missionaries were not completely successful, stretched earlobes have become less common.
 
 ---

@@ -1,7 +1,7 @@
 # [Scenes from the Tale of Genji in the Four Seasons](http://artsmia.github.io/griot/#/o/117153)
 ![Scenes from the Tale of Genji in the Four Seasons](http://api.artsmia.org/images/117153/large.jpg)
 
-*The Tale of Genji* (*Genji monogatari*) is Japan’s most famous work of literature and is thought to be the world’s first novel. Written in the 11th century by the court lady Murasaki Shikibu (c. 973–c. 1014 or 1025), it chronicles the fictional Prince Genji and his descendants, focusing on the aristocratic life and spirit of the times. It has inspired many adaptations through the centuries and remains an important part of Japanese culture today. This pair of screens is ordered around the four seasons depicting scenes from ten different chapters based on what season they occurred in, versus when in the story they chronologically happened.  This pair of screens is one of the best examples of *The Tale of Genji* screens in the US for its use of gold, pigments, heavy detail, and its pristine condition. 
+*The Tale of Genji* (*Genji monogatari*) is Japan’s most famous work of literature and is thought to be the world’s first novel. Written in the 1000s by the court lady Murasaki Shikibu (c. 973–c. 1014 or 1025), it chronicles the fictional Prince Genji and his descendants, focusing on the aristocratic life and spirit of the times. It has inspired many adaptations through the centuries and remains an important part of Japanese culture today. This pair of screens is ordered around the four seasons depicting scenes from ten different chapters based on what season they occurred in, versus when in the story they chronologically happened.  This pair of screens is one of the best examples of *The Tale of Genji* screens in the US for its use of gold, pigments, heavy detail, and its pristine condition. 
 
  
 
@@ -25,7 +25,7 @@ In this episode, the Kamō-River ceremony, an important Shinto ritual, is held a
 
 ## Chapter 13: Akashi
 
-During Genji’s exile in Akashi  (a port city around 70 miles southwest of Kyoto), the governor of Akashi encourages him to make advances to his daughter, as he wishes to raise his status through an advantageous marriage. The relationship is not greatly successful because of the daughter’s reluctance. While enjoying the beautiful night scene, Genji regrets that he can’t share this moment with his wife Murasaki in the capital.
+During Genji’s exile in Akashi (a port city around 70 miles southwest of Kyoto), the governor of Akashi encourages him to make advances to his daughter, as he wishes to raise his status through an advantageous marriage. The relationship is not greatly successful because of the daughter’s reluctance. While enjoying the beautiful night scene, Genji regrets that he can’t share this moment with his wife Murasaki in the capital.
 
 ## Chapter 17: The Picture Competition (E-awase)
 

@@ -7,11 +7,11 @@ She is at once ferocious and kind, wrathful and gentle, a fierce goddess with a 
 
 ## Tools for Rule
 
-This yogini holds more benign implements than some of her counterparts, demonstrating that goddesses frequently embodied contrasting human traits—they could be at once fearsome and benevolent, beautiful and terrible. Her upper left hand holds a jar, possibly containing medicine, while her upper right hand holds a small spear or spatula.  Her now missing bottom lefthand would have held an outstretched skull cup for drinking fluids used in Tantric ritual. Other yoginis hold much fiercer tools, such as clubs, spears, and shields, portraying their martial identities.
+This yogini holds more benign implements than some of her counterparts, demonstrating that goddesses frequently embodied contrasting human traits—they could be at once fearsome and benevolent, beautiful and terrible. Her upper left hand holds a jar, possibly containing medicine, while her upper right hand holds a small spear or spatula.  Her now missing bottom left hand would have held an outstretched skull cup for drinking fluids used in Tantric ritual. Other yoginis hold much fiercer tools, such as clubs, spears, and shields, portraying their martial identities.
 
 ## Yoga Power
 
-The yogini is sitting cross-legged in a meditative yoga position. She embodies feminine power or Shakti, which controls all action in the universe and is an inexhaustible source of energy and supernatural powers.Thousand-year-old texts describe yoginis as fearsome flying goddesses who could impart gifts of flight and the ability to transcend death and time to mortals.
+The yogini is sitting cross-legged in a meditative yoga position. She embodies feminine power or Shakti, which controls all action in the universe and is an inexhaustible source of energy and supernatural powers. Thousand-year-old texts describe yoginis as fearsome flying goddesses who could impart gifts of flight and the ability to transcend death and time to mortals.
 
 ## Adornments
 

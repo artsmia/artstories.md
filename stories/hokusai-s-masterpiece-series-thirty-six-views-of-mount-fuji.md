@@ -14,7 +14,7 @@ Rainstorm beneath the Summit. The foot of Mt. Fuji is rendered in darkness, sugg
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_mia_70730a.jpg)
 
-*Under the Wave off Kanagawa*, better known as just *The Great Wave*, is the most familar Japanese artwork in existence. The location is believed to be near present-day Yokohama on the west side of Tokyo Bay. Hokusai surpassed previous depictions of this motif with his more dynamic and dramatic view of the stormy ocean.
+*Under the Wave off Kanagawa*, better known as just *The Great Wave*, is the most familiar Japanese artwork in existence. The location is believed to be near present-day Yokohama on the west side of Tokyo Bay. Hokusai surpassed previous depictions of this motif with his more dynamic and dramatic view of the stormy ocean.
 
 ---
 

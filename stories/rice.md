@@ -24,6 +24,6 @@ With the moisture dripping through.*
 
 (trans. Clay MacCauley, 1917)
 
-The poem was included in an anthology entitled “100 Poems by 100 Poets” and assembled by the poet  Fujiwara no Teika around 1235. The poems were the subject of many Ukiyo-e woodblock prints, including this one by Kuniyoshi.
+The poem was included in an anthology entitled “100 Poems by 100 Poets” and assembled by the poet Fujiwara no Teika around 1235. The poems were the subject of many Ukiyo-e woodblock prints, including this one by Kuniyoshi.
 
 ---

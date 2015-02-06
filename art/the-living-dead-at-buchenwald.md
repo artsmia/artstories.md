@@ -7,7 +7,7 @@ Many decades now separate these men from us. But their transfixed gazes seem to 
 
 ## The First Camp
 
-On the morning of April 11, 1945, *LIFE* magazine photographer Margaret Bourke-White accompanied the legendary General George Patton and his Third Army troops into the concentration camp at Buchenwald. The was the first such camp seen by the Americans, and Bourke-White would provide the first images. 
+On the morning of April 11, 1945, *LIFE* magazine photographer Margaret Bourke-White accompanied the legendary General George Patton and his Third Army troops into the concentration camp at Buchenwald. It was the first such camp seen by the Americans, and Bourke-White would provide the first images. 
 
 ## 1945 versus 1960
 
@@ -33,4 +33,4 @@ War journalists typically pride themselves on capturing the frenetic, violent ac
 
 ---
 
-* [War photography](../stories/war-photography.md)
+* [War Photography](../stories/war-photography.md)

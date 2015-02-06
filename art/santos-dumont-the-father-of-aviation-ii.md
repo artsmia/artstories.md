@@ -19,7 +19,7 @@ Wiley paints the fallen men with their eyes open, looking directly at the viewer
 
 ## Modern Adornment
 
-In European portraits, the rich and powerful often flaunted their wealth. Wiley updates the tradition, linking old opulence to today’s hip-hop style, by  highlighting the men’s jewelry.
+In European portraits, the rich and powerful often flaunted their wealth. Wiley updates the tradition, linking old opulence to today’s hip-hop style, by highlighting the men’s jewelry.
 
 ---
 

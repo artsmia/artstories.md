@@ -10,19 +10,19 @@ The architectural form of a South Indian temple is meticulously reproduced on th
 
 Flowers, birds, and elegantly sculpted gods appear on the rudrakshamala necklace just as they do on Indian temples. Temples as blooming trees or flowers is a common metaphor, with the entire exterior of some stone temples carved with blooming flowers and flowing ornament. Literary tropes refer to beautiful women touching temples and making them bloom, a metaphor for fecundity. Even the organization of a Hindu temple, from its dark and plain interior to its blossoming exterior, suggests it sprung from the “seed” (the divine presence) contained inside.  
 
-A stone lintel arch from the MIA’s collection illustrates this point.  Vishnu is depicted 7 times amidst blossoming temple architecture, auspicious women and attendants, leaving no surface unormanented. It is almost as if he has emerged out of the stone.
+A stone lintel arch from the MIA’s collection illustrates this point.  Vishnu is depicted seven times amidst blossoming temple architecture, auspicious women and attendants, leaving no surface unornamented. It is almost as if he has emerged out of the stone.
 
 ---
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_2014_TDX_MIAArtStories_087.jpg)
 
-Fertility is prominent in early Indian temple iconography. At a Buddhist stupa in Sanchi, dating to the first century BCE, a female divinity (yakshi) grips a mango tree, causing it to bloom.
+Fertility is prominent in early Indian temple iconography. At a Buddhist stupa in Sanchi, dating to the first century BCE, a female divinity (*yakshi*) grips a mango tree, causing it to bloom.
 
 ---
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_mia_6007444.jpg)
 ![](http://cdn.dx.artsmia.org/thumbs/tn_2014_TDX_MIAArtStories_180.jpg)
 
-The same ornamental motifs appear on jewelry and temples, like the “face of glory” (*kirtimukha*) worn by many gods as arm bands and belts while also appearing on temple structurs. The fantastic aquatic animals that adorn our rudrakshamala also decorate temple doorways and lintels. In both cases, they animate the temple and the wearer, providing protection.  
+The same ornamental motifs appear on jewelry and temples, like the “face of glory” (*kirtimukha*) worn by many gods as arm bands and belts while also appearing on temple structures. The fantastic aquatic animals that adorn our rudrakshamala also decorate temple doorways and lintels. In both cases, they animate the temple and the wearer, providing protection.  
 
 ---

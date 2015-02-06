@@ -1,7 +1,7 @@
 # [Atomic Bomb Damage: Wristwatch Stopped at 11:02, August 9, 1945, Nagasaki](http://artsmia.github.io/griot/#/o/116116)
 ![Atomic Bomb Damage: Wristwatch Stopped at 11:02, August 9, 1945, Nagasaki](http://api.artsmia.org/images/116116/large.jpg)
 
-It is a simple, small photograph: a broken, bandless watch isolated on a fabric backdrop. A gray halo surrounds the watch, its own shadow. Its fragile hands have stopped. The time is 11:02 a.m. The title, Atomic Bomb Damage: Wristwatch Stopped at 11:02, August 9, 1945, Nagasaki, tells the rest of the story. Bombed three days after Hiroshima, Nagasaki and its residents are sometimes forgotten. But some 60,000 to 80,000 civilians died in this shipbuilding and military port, prompting Japan to surrender to the Allies five days later. 
+It is a simple, small photograph: a broken, bandless watch isolated on a fabric backdrop. A gray halo surrounds the watch, its own shadow. Its fragile hands have stopped. The time is 11:02 a.m. The title, *Atomic Bomb Damage: Wristwatch Stopped at 11:02, August 9, 1945, Nagasaki*, tells the rest of the story. Bombed three days after Hiroshima, Nagasaki and its residents are sometimes forgotten. But some 60,000 to 80,000 civilians died in this shipbuilding and military port, prompting Japan to surrender to the Allies five days later. 
 
 ---
 

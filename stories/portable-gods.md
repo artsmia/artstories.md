@@ -1,8 +1,8 @@
-# [Portable gods](http://artsmia.github.io/griot/#/stories/567)
+# [Portable Gods](http://artsmia.github.io/griot/#/stories/567)
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_2014_TDX_MIAArtStories_078.jpg)
 
-Large bronze images of gods, adorned and treated like royalty granting benediction to their people, process outside the temple in a ritual that goes back millenia. For *paraiyan* communities from the “untouchable” caste, still barred from temples in many places, it’s a chance to see the holy images in person.    
+Large bronze images of gods, adorned and treated like royalty granting benediction to their people, process outside the temple in a ritual that goes back millennia. For *paraiyan* communities from the “untouchable” caste, still barred from temples in many places, it’s a chance to see the holy images in person.    
 
 ---
 

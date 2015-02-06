@@ -1,4 +1,4 @@
-# [War photography](http://artsmia.github.io/griot/#/stories/1438)
+# [War Photography](http://artsmia.github.io/griot/#/stories/1438)
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_mia_2023617.jpg)
 
@@ -20,7 +20,7 @@ The American Civil War was well-documented by photographers Alexander Gardner an
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_2014_TDX_MIAArtStories_193.jpg)
 
-By the 1930s, cameras were very portable—no larger than they are today—and capable of capturing action. This advance allowed photographers to document a battle in progress and reveal the human face of war. \`
+By the 1930s, cameras were very portable—no larger than they are today—and capable of capturing action. This advance allowed photographers to document a battle in progress and reveal the human face of war.
 
 ---
 

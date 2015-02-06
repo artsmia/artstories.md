@@ -8,7 +8,7 @@ To the Chinese, Guanyin literally means “he who observes the sounds of the wor
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_100629_mia341_155807.jpg)
 
-Male, female—it doesn’t really matter. In popular Buddist belief, Guanyin can assume whatever gender and form is needed to liberate beings from ignorance and suffering.
+Male, female—it doesn’t really matter. In popular Buddhist belief, Guanyin can assume whatever gender and form is needed to liberate beings from ignorance and suffering.
 
 ---
 

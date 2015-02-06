@@ -1,9 +1,9 @@
-# [Silver plate decorated with chased “Red Cliff” scene](http://artsmia.github.io/griot/#/o/114429)
-![Silver plate decorated with chased “Red Cliff” scene](http://api.artsmia.org/images/114429/large.jpg)
+# [Silver Plate Decorated with Chased “Red Cliff” Scene](http://artsmia.github.io/griot/#/o/114429)
+![Silver Plate Decorated with Chased “Red Cliff” Scene](http://api.artsmia.org/images/114429/large.jpg)
 
 *In the autumn of 1082, on the 16th of the seventh month, Master Su and his guests sailed in a boat below the Red Cliffs. Clear wind blew gently, the water was calm. The boaters raised their wine and poured for each other, reciting “The Bright Moon” and singing “The Lovely One.”  *
 
-So begins the poet Su Shi’s Former *Ode to the Red Cliff* (translation by Pauline Chen), describing boating parties he took with friends along the Yangzi River beneath the famous Red Cliff. The scene on this dish depicts the poet in court robes with two companions, a wine pot and cups before them. The boat drifts idyllically beside a rocky embankment covered with grasse, tall reeds, a willow, and a cassia tree, as a waterfall spills down from the high cliffs at the far shore.  
+So begins the poet Su Shi’s Former *Ode to the Red Cliff* (translation by Pauline Chen), describing boating parties he took with friends along the Yangzi River beneath the famous Red Cliff. The scene on this dish depicts the poet in court robes with two companions, a wine pot and cups before them. The boat drifts idyllically beside a rocky embankment covered with grasses, tall reeds, a willow, and a cassia tree, as a waterfall spills down from the high cliffs at the far shore.  
 
 ---
 

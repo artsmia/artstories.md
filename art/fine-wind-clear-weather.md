@@ -15,6 +15,8 @@ Hokusai exaggerated the already imposing single peak of Mt. Fuji by making it mu
 
 ## Morning Light
 
+Hokusai called this work *Fine Wind, Clear Weather*, evoking the coloring of Mount Fuji in a summer sunrise, when a warm southerly breeze blows across Japan.
+
 ---
 
 * [Katsushika Hokusai (1760–1849)](../stories/katsushika-hokusai-1760-1849.md)
