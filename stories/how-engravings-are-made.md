@@ -4,6 +4,4 @@
 
 A step-by-step video on how engravings are made.
 
-Excerpt from *Prints and Processes*, Minneapolis Institute of Arts, 1999
-
 ---

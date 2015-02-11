@@ -11,7 +11,7 @@ Osage artists are famed around the world for their excellence in reverse appliqu
 
 ## Life as Tattoo
 
-The designs in the ribbon work are based on ancient tattooed symbols that would be drawn from a woman’s shoulder down to her fingertips, representing life in all its forms. Creating this particular applique design was so challenging tat that only the most masterful ribbon-work artists would attempt it.
+The designs in the ribbon work are based on ancient tattooed symbols that would be drawn from a woman’s shoulder down to her fingertips, representing life in all its forms. Creating this particular applique design was so challenging that only the most masterful ribbon-work artists would attempt it.
 
 ## In Living Color
 

@@ -19,7 +19,7 @@ The Doryphoros composition heavily influenced Greek and Roman art, which in turn
 
 ## The Struggle to Achieve
 
-Polykleitos’ treatise, Canon, spelled out the requirements for beauty: balance and proportion, not only of the body as a whole, but the relationship of one part to another—finger to finger, fingers to wrist, wrist to forearm, etc. 
+Polykleitos’ treatise, *Canon*, spelled out the requirements for beauty: balance and proportion, not only of the body as a whole, but the relationship of one part to another—finger to finger, fingers to wrist, wrist to forearm, etc. 
 
 ## Perfection is Unattainable
 

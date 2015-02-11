@@ -3,7 +3,7 @@
 ![](http://cdn.dx.artsmia.org/thumbs/tn_mia_1006298.jpg)
 ![](http://cdn.dx.artsmia.org/thumbs/tn_mia_5001143.jpg)
 
-Compare the energy of *Convulsionists of Tangier* to the works of Delacroix’s contemporaries and you’ll understand why he’s considered one of the great colorists of the 19th century. Corot’s *Silenus*, in this same gallery, was displayed in the Salon of 1838 along with *Convulsionists*. Delacroix’s innovative color theories, as seen in the widely diverging palettes, make all the difference.
+Compare the energy of *Convulsionists of Tangier* to the works of Delacroix’s contemporaries and you’ll understand why he’s considered one of the great colorists of the 1800s. Corot’s *Silenus*, in this same gallery, was displayed in the Salon of 1838 along with *Convulsionists*. Delacroix’s innovative color theories, as seen in the widely diverging palettes, make all the difference.
 
 ---
 
@@ -15,7 +15,7 @@ The stark bright light of North African cities and the vibrant colors of the loc
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_mia_5001169.jpg)
 
-In 1881, the Neo-Impressionist artist Georges Seurat studied three paintings from the collection of Alfred Edwards before their sale at auction, including the *The Convulsionists of Tangier*. Fascinated by Delacroix’s innovative color theory, he wrote extensively on the colors used throughout the composition.
+In 1881, the Neo-Impressionist artist Georges Seurat studied three paintings from the collection of Alfred Edwards before their sale at auction, including *The Convulsionists of Tangier*. Fascinated by Delacroix’s innovative color theory, he wrote extensively on the colors used throughout the composition.
 
 ---
 

@@ -14,7 +14,7 @@ In the late 1500s, two basic kinds of lace emerged in Europe: needle laces, work
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_2014_TDX_MIAArtStories_264.jpg)
 
-In the 17th century, the Low Countries (now Belgium, the Netherlands, and Luxembourg) produced some of Europe’s finest bobbin lace, named for the bobbins on which the various lace threads were wound. Often worked over a curved pillow, it is also known as pillow lace.
+In the 1600s, the Low Countries (now Belgium, the Netherlands, and Luxembourg) produced some of Europe’s finest bobbin lace, named for the bobbins on which the various lace threads were wound. Often worked over a curved pillow, it is also known as pillow lace.
 
 ---
 

@@ -15,7 +15,7 @@ Piranesi had a thing for ox skulls, particularly the decorative, twirling horns,
 
 ## Everyone's a Critic
 
-Critics attacked Piranesi for his apparent love of ornament over functionality, his Rococo pretensions. But Piranesi didn’t care for Rococo either. Not because of all the ornamentation—frills and flipperies were fine by him—but because of its often artless arrangement. He preferred more orderly ornament, geometrically and mathematically organized.
+Critics attacked Piranesi for his apparent love of ornament over functionality, his Rococo pretensions. But Piranesi didn’t care for Rococo either. Not because of all the ornamentation—frills and fripperies were fine by him—but because of its often artless arrangement. He preferred more orderly ornament, geometrically and mathematically organized.
 
 ## A Table for Display
 

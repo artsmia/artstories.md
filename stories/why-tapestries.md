@@ -1,6 +1,6 @@
 # [Why Tapestries?](http://artsmia.github.io/griot/#/stories/2124)
 
-<video src='http://www.metmuseum.org/exhibitions/listings/2014/grand-design/blog/posts/hanging-the-tapestries'></video>
+<video src='http://cdn.dx.artsmia.org/videos/artstories/MET_hanging_tapestry.mp4'></video>
 
 Tapestry weaving emerged in Europe as a highly developed and coveted art form in the Middle Ages, between 1000 and 1300. They were full of images, much like paintings, but unlike paintings they could be easily rolled and stored or transported. This portability suited the lifestyle of their wealthy owners, who moved from estate to estate throughout the year. Yet they took more labor to produce than paintings and were more costly as a result. 
 

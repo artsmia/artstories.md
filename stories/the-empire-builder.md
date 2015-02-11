@@ -35,6 +35,6 @@ In 1915, Hill loaned 22 paintings to the MIA's opening exhibition, and it was ho
 ![](http://cdn.dx.artsmia.org/thumbs/tn_2014_TDX_MIAArtStories_302.jpg)
 ![](http://cdn.dx.artsmia.org/thumbs/tn_mia_284b.jpg)
 
-Through the generosity of his descendents, 29 of Hill's paintings and pastels have found their way to the MIA, from masterworks by Delacroix, Corot, and Jean-Francois Millet to this unexpected 16th-century *Madonna* by Joos van Cleve, which Hill had acquired in 1914 for his Roman Catholic spouse, Mary. 
+Through the generosity of his descendants, 29 of Hill's paintings and pastels have found their way to the MIA, from masterworks by Delacroix, Corot, and Jean-Francois Millet to this unexpected 16th-century *Madonna* by Joos van Cleve, which Hill had acquired in 1914 for his Roman Catholic spouse, Mary. 
 
 ---

@@ -5,7 +5,7 @@ She is no one in particular. In fact, she exists only in your mind—a beautiful
 
 ---
 
-## Tricks Revealed
+## Tricks revealed
 
 Her head and shoulders are polished smooth. But where the veil falls across the face, the marble is less polished, suggesting the texture of fabric. Also, the tightness of the veil in some places and looseness elsewhere creates an illusion of depth.
 
@@ -21,7 +21,7 @@ Veiled ladies were vehicles for flaunting virtuosity, not portraits. But the vei
 
 One theory about the identity of veiled ladies is that they’re actually everyone, or at least every Italian. Created by Italian sculptors at a time when Italy was unifying, the veil and plain white color obscured regional differences like eye and skin color.
 
-## Factory of Ladies
+## Factory of ladies
 
 Raffaelo Monti was not a one-trick pony, but he became known for one trick in particular: the veiled lady. His workshop in Milan, Italy, produced a lot of them, the best-known being the *Veiled Vestal* commissioned for the Chatsworth House in Devonshire, England. Here, Keira Knightley marvels at it in *Pride and Prejudice* (2005), filmed at Chatsworth.
 

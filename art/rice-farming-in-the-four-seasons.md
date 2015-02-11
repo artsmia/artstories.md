@@ -13,17 +13,17 @@ They were originally arranged as the four walls of a meeting room—four sliding
 
 In winter, rice seedlings are planted tightly together in starter beds, where they grow until they’re planted in spring.
 
-## Raised Paths
-
-The rice paddies are contained by elevated embankments that also serve as dry pathways for the rice farmers to walk from one field to another.
-
-## Winter
+## Winter Plowing
 
 The climate in Kyoto only allows for one rice crop to be planted and harvested each year. This screen depicts winter, when plows pulled by water buffalo readied fields for spring.
 
 ## Spring
 
 In the spring, the rice seedlings are transferred by hand from the starter beds to the fields. Here, men are shown pulling out the weeds that compete with the growing rice.
+
+## Raised Paths
+
+The rice paddies are contained by elevated embankments that also serve as dry pathways for the rice farmers to walk from one field to another.
 
 ## Summer
 

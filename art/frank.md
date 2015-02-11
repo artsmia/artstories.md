@@ -27,5 +27,4 @@ Close made Frank’s head 10 times larger than it appeared in the 8x10-inch phot
 
 ---
 
-* [Real as a Photo](../stories/real-as-a-photo.md)
 * [Portrait of an Artist](../stories/portrait-of-an-artist.md)

@@ -1,21 +1,21 @@
 # [Pair of Earspools](http://artsmia.github.io/griot/#/o/678)
 ![Pair of Earspools](http://api.artsmia.org/images/678/large.jpg)
 
-These are not your everyday earrings. A Chimu ruler wore these elaborate, golden ear spools in his impressively stretched earlobes during public appearances around his vast empire in the coastal desert of northern Peru. An artist, through his command of sophisticated metalworking techniques, created varied textures, concave and convex surfaces and dangling discs, resulting in shimmering display as the ruler paraded processed in the hot sun.
+You wouldn’t wear these earrings to the gym. In fact you wouldn’t wear these elaborate golden ear spools at all unless you were a Chimu ruler, and then only for public appearances around your vast empire in the coastal desert of northern Peru. The artist who made them used sophisticated metalworking techniques to create varied textures, concave and convex surfaces, and dangling discs, the better to shimmer in the hot sun as the ruler paraded with them in his impressively stretched earlobes.
 
 ---
 
 ## Royal Procession
 
-In the center of each ear spool, the artist sculpted a miniature scene of the ruler with his royal entourage. The all-important king is the largest of the bunch. And, of course, he’s positioned smack dab in the middle.
-
-## Monkey Attendants
-
-The attendants flanking the ruler are in fact monkeys.  While still elaborately dressed, they stand to the side of the ruler and hold steady the caravan on which he rides.
+In the center of each ear spool, the artist sculpted a miniature scene of the ruler with his royal entourage. The omnipotent king is the largest of the bunch, of course, and smack dab in the middle.
 
 ## Dressed to Impress
 
-The ruler and his two primary attendants distinguish themselves in crescent-shaped headdresses that you wouldn’t find at the local clothing mart. The ruler also has a ceremonial cup of chicha (corn beer) in his left hand and a fan of exotic Amazonian bird feathers in his right.
+The ruler and his two primary attendants distinguish themselves in crescent-shaped headdresses that you wouldn’t find at the local clothing mart. The ruler also has a ceremonial cup of *chicha* (corn beer) in his left hand and a fan of exotic Amazonian bird feathers in his right.
+
+## Monkey Attendants
+
+Escorting the ruler’s caravan was apparently monkey business—those attendants flanking the ruler are indeed sharply dressed simians.
 
 ---
 

@@ -24,4 +24,3 @@ In European portraits, the rich and powerful often flaunted their wealth. Wiley 
 ---
 
 * [Interview with Kehinde Wiley](../stories/interview-with-kehinde-wiley.md)
-* [Brazil’s Father of Aviation ](../stories/brazil-s-father-of-aviation.md)

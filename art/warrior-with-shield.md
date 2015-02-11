@@ -11,7 +11,7 @@ The scoring on the bronze surface of the sculpture illustrates scars or wounds f
 
 ## A Pebble
 
-A pebble found on a beach inspired Moore to create Warrior with Shield.  Its shape reminded Moore of the stump of a leg amputated at the hip.  He writes, “Just as Leonardo says somewhere in his notebooks that a painter can find a battle scene in the lichen marks on a wall, so this [a pebble] gave me the start of The Warrior idea.”
+A pebble found on a beach inspired Moore to create *Warrior with Shield*.  Its shape reminded Moore of the stump of a leg amputated at the hip.  He writes, “Just as Leonardo says somewhere in his notebooks that a painter can find a battle scene in the lichen marks on a wall, so this [a pebble] gave me the start of *The Warrior* idea.”
 
 ## New Forms
 

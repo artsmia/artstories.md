@@ -14,7 +14,7 @@ Thorvaldsen’s Jason with the Golden Fleece was his breakthrough sculpture whil
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_2014_TDX_MIAArtStories_220.jpg)
 
-Cupid—the god of desire, erotic love, and attraction—repeatedly appeared in Thorvaldsen’s sculptures. Here, in Cupid Triumphant, the matchmaker strikes both man and the gods powerless with one of his arrows of uncontrollable desire. Thorvaldsen communicates this by incorporating the marks of famous gods and heroes who have laid down their status symbols in submission to Cupid’s power: Hercules’s lion skin, Apollo’s lyre, Jupiter’s thunderbolt, and Mars’s helmet.
+Cupid—the god of desire, erotic love, and attraction—repeatedly appeared in Thorvaldsen’s sculptures. Here, in *Cupid Triumphant*, the matchmaker strikes both man and the gods powerless with one of his arrows of uncontrollable desire. Thorvaldsen communicates this by incorporating the marks of famous gods and heroes who have laid down their status symbols in submission to Cupid’s power: Hercules’s lion skin, Apollo’s lyre, Jupiter’s thunderbolt, and Mars’s helmet.
 
 ---
 

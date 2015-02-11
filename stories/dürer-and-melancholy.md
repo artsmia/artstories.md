@@ -2,7 +2,7 @@
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_mia_6020535.jpg)
 
-Albrecht Dürer was the most important Renaissance artist in Germany. His technical genius gave expression to his spectacular imagination and intellectual depth. He raised printmaking from craft to high art and remains unsurpassed as an engraver. Born in 1471, he trained as a goldsmith, then as a painter and draughtsman. He traveled in Germany, the Netherlands, and Italy, absorbing ideas wherever he went. He produced religious picture books, guides for artists, and even a treatise on fortification. His graphic output included more than 100 engravings and several hundred woodcuts. His interest in art, nature, and mathematics as well as his phenomenal skill are clearly seen in *Melencolia I*.
+Albrecht Dürer was the most important and accomplished Renaissance artist in Germany, his technical genius enabling his spectacular imagination and intellectual depth. He raised printmaking from a craft to high art and remains unsurpassed as an engraver. Born in 1471, he produced religious picture books, guides for artists, and even a treatise on fortification. His skill and interests in art, nature, and mathematics are clearly seen in *Melencolia I*.
 
 Erhard Schön, German, c. 1491–1592, *Portrait of Albrecht Dürer*, 1527, woodcut, The Ethel Morrison Van Derlip Fund P.13,364
 
@@ -18,7 +18,7 @@ Portrait of Marsilio Ficino, detail from Giorgio Varsari, Italian (Florence), 15
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_2014_TDX_MIAArtStories_210.jpg)
 
-Dürer specified *Melencolia I*, or the first form of melancholy. He must have known treatises by German author of the occult, Cornelius Agrippa (1486–1535). Agrippa divided melancholy into three levels. Level One ruled the imagination, especially of artists. Level Two controlled scientists and physicians. Level Three governed the spirit and thought of theologians.
+The fact that Dürer specified *Melencolia I*, deemed the first form of melancholy, suggests that he’d read the work of German occultist Cornelius Agrippa, who divided melancholy into three levels. Level One ruled the imagination, especially of artists. Level Two controlled scientists and physicians. Level Three governed the spirit and thought of theologians.
 
 Image from the History of Medicine (NLM). Licensed under [Public Domain] via Wikimedia Commons
 
@@ -27,6 +27,6 @@ Image from the History of Medicine (NLM). Licensed under [Public Domain] via W
 ![](http://cdn.dx.artsmia.org/thumbs/tn_2014_TDX_MIAArtStories_213.jpg)
 ![](http://cdn.dx.artsmia.org/thumbs/tn_mia_5030749.jpg)
 
-*Melencolia I* may be Dürer's psychological self-portrait. The large, wide-eyed angel is saddened by its ability to envision ideals forms, knowing they are unrealizable in the physical world. Even the physical realization of Dürer's ideal geometric solid is chipped and weathered. The shut-eyed putto, a less ambitious artist, can freely scribble away.
+*Melencolia I* may be Dürer’s psychological self-portrait. The large, wide-eyed angel is saddened by its ability to envision ideal forms, knowing they are unrealizable in the physical world. Even the physical realization of Dürer’s ideal geometric solid is chipped and weathered. Meanwhile, the shut-eyed *putto*, a less ambitious artist, can freely scribble away.
 
 ---

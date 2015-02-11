@@ -11,7 +11,7 @@ The boy and the eagle are carved from two separate blocks of marble that were la
 
 ## Ancient Model
 
-The cup Ganymede holds in his left hand is modeled after a kylix, a kind of drinking cup used in ancient Greece. They were common at social gatherings or parties, its shallow shape making it easier to drink while reclining.
+The cup Ganymede holds in his left hand is modeled after a *kylix*, a kind of drinking cup used in ancient Greece. They were common at social gatherings or parties, its shallow shape making it easier to drink while reclining.
 
 ## Zoology
 

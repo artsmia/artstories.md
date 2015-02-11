@@ -1,19 +1,17 @@
 # [Melencolia I](http://artsmia.github.io/griot/#/o/113568)
 ![Melencolia I](http://api.artsmia.org/images/113568/large.jpg)
 
-A magnificent, laurel-crowned angel sits brooding. A dog sleeps at its feet and a putto sits on a millstone, scribbling away on a tablet. Above a distant horizon, a rainbow frames a streaking comet, while a bat-like creature flies through the sky holding a banner that reads “MELENCOLIA I.”
-
-Little was written about Albrecht Dürer's image when he made it in 1514, but over time this mysterious print became one of the most frequently discussed images in the history of art. We may never know its full meaning but we can be certain that it touches upon many of the artist's central interests: the role of artist as creator, mathematics, and the relationships among the physical, intellectual, and spiritual realms. In essence the engraving became a manifesto on knowing the unknowable and making the unmakeable.
+A magnificent angel broods while a dog sleeps at its feet and a chubby child—a *putto*—sits on a millstone, scribbling away on a tablet. We may never know what this all means, but it certainly touches on many of Dürer’s interests: the artist as creator, mathematics, and the relationships between the physical, intellectual, and spiritual realms. Little was written about it when he made it in 1514, though it became one of the most discussed works in the history of art, a manifesto on knowing the unknowable and making the unmakeable. 
 
 ---
 
 ## What Is Melencolia?
 
-Melencolia is a variant spelling of “melancholy,” which means sadness. It was believed to result from an excess of a bodily fluid known as “black bile.” Though understanding of the body has changed, today's physicians would agree with their predecessors that depression is as much a chemical as it is an emotional condition.
+Melencolia is a variant spelling of “melancholy,” which means sadness. It was once believed to result from an excess of a bodily fluid known as “black bile.” Our understanding of the body has changed since then, but today’s physicians would agree with their predecessors that depression is as much a chemical condition as it is emotional.
 
 ## Comet or Shooting Star
 
-Unusual celestial events held ominous meanings in the 1500s. Dürer may have witnessed the atmospheric entry of a 250-pound meteorite on November 7, 1492. It landed about 30 miles from Basel, where he was at the time.
+Unusual celestial events held ominous meanings in the 1500s. Dürer may have witnessed the atmospheric entry of a 250-pound meteorite on November 7, 1492. It landed about 30 miles from Basel, where he was at the time.
 
 ## Symbols of Mortality
 

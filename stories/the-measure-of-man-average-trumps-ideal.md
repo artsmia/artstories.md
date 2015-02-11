@@ -14,6 +14,6 @@ When much of our clothing and furniture was made to order, designs were often ta
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_2014_TDX_MIAArtStories_140.jpg)
 
-Dreyfuss’ books, Designing for People (1955), The Measure of Man: Human Factors in Design (1967), and Humanscale 1/2/3 (1974) were the equivalent of Polykleitos’ Canon for the 20th century designer, and their impact is still felt (literally and figuratively) by all us consumers today.
+Dreyfuss’ books, *Designing for People* (1955), *The Measure of Man: Human Factors in Design* (1967), and *Humanscale 1/2/3* (1974) were the equivalent of Polykleitos’ *Canon* for the 20th century designer, and their impact is still felt (literally and figuratively) by all us consumers today.
 
 ---
