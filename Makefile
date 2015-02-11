@@ -6,6 +6,7 @@ artstories.json:
 	curl new.artsmia.org/crashpad/griot > $@
 
 art: artstories.json
+	@rm -rf art
 	@mkdir -p art
 	@echo > readme.md
 	@jq -c '.objects | .[]' $< | sed 's/<\([^ >]*\) [^>]*>/<\1>/g' | while read -r json; do \
@@ -39,6 +40,7 @@ art: artstories.json
 	done
 
 stories: artstories.json
+	@rm -rf stories
 	@mkdir -p stories
 	@jq -c '.stories[]' $< | sed 's/<\([^ >]*\) [^>]*>/<\1>/g' | while read -r json; do \
 		title=$$(jq -r '.title' <<<$$json); \
