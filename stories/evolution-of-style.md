@@ -1,6 +1,6 @@
 # [Evolution of Style](http://artsmia.github.io/griot/#/stories/1142)
 
-![](http://cdn.dx.artsmia.org/thumbs/tn_null.jpg)
+![](http://cdn.dx.artsmia.org/thumbs/tn_2014_TDX_MIAArtStories_388.jpg)
 
 Matisse’s palette, painting technique, and artistic style continued to change and evolve over his career, sometimes quite drastically. Originally trained as a lawyer, Matisse pursued his interest in art at the age of 21 by following the traditional path of a professional artist – he moved to Paris and went to art school, ultimately studying at the prestigious École des Beaux-Arts (School of Fine Arts). His earliest work reflected his traditionalist training and is very un-Matisse. During the late 1890s, Paris’ art scene was active and dynamic and soon Matisse was experimenting with the diverse styles of the time including Impressionism and Neo-Impressionism.
 

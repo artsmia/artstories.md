@@ -22,6 +22,7 @@ Following the poplar series, Monet created more than 30 canvases of the Rouen Ca
 ---
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_2014_TDX_MIAArtStories_270.jpg)
+![](http://cdn.dx.artsmia.org/thumbs/tn_2014_TDX_MIAArtStories_270.jpg)
 
 For his next series, Monet anchored his rowboat along the banks of the Epte River, where it flows into the Seine in Giverny. He worked from dawn to day, capturing the changing light, on one canvas after another. He even numbered the 18 canvases and stored them in grooves built into the boat so he could work on them, in order, morning after morning.
 

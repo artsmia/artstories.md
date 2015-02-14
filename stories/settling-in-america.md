@@ -1,18 +1,14 @@
 # [Settling in America](http://artsmia.github.io/griot/#/stories/1130)
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_null.jpg)
-
-Soon after Beckmann arrived in America, the City Art Museum of St. Louis (now the St. Louis Art Museum) organized his first American retrospective. *Blind Man’s Buff* is shown in this 1948 photograph of the exhibition.
-
----
-
 ![](http://cdn.dx.artsmia.org/thumbs/tn_null.jpg)
 
-Max Beckmann stands beside his wife, Quappi, and their dog, Butschy, inspecting “Blind Man’s Buff” with Perry Rathbone, director of the City Art Museum of St. Louis in 1948.
+Soon after Beckmann arrived in America, the City Art Museum of St. Louis (now the St. Louis Art Museum) organized his first American retrospective. 
 
 ---
 
-![](http://cdn.dx.artsmia.org/thumbs/tn_131001_mia334_2025603.jpg)
+![](http://cdn.dx.artsmia.org/thumbs/tn_131001_mia334_2025607.jpg)
+![](http://cdn.dx.artsmia.org/thumbs/tn_131001_mia334_2025608.jpg)
 
 <div>
 

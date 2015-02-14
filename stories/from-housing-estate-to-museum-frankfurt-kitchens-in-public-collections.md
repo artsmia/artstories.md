@@ -8,8 +8,9 @@ The Frankfurt kitchens functioned well until the late 20th century, when the MIA
 ---
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_2014_TDX_MIAArtStories_321.jpg)
+![](http://cdn.dx.artsmia.org/thumbs/tn_2014_TDX_MIAArtStories_315.jpg)
 
-null
+London’s Victoria and Albert Museum has a kitchen from the same housing estate as the MIA. Slightly smaller, it was the most common and least costly, and included a pocket door connecting the kitchen and dining area. Museums in New York and Vienna have the same version. Variations with a pass-through instead of a door, like the MIA’s, may have been for households with paid help.
 
 ---
 

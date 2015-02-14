@@ -24,3 +24,4 @@ Megaphones “indicate what needs to be heard or seen, outside of oneself,” Ke
 ---
 
 * [Music and the Message](../stories/music-and-the-message.md)
+* [Animating Ideas](../stories/animating-ideas.md)

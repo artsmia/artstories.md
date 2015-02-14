@@ -45,7 +45,6 @@ Finally, he delivers a full-blown scream in the seventh image.
 ---
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_2014_TDX_MIAArtStories_367.jpg)
-![](http://cdn.dx.artsmia.org/thumbs/tn_null.jpg)
 
 In the final study, the pope twists his body and appears to push up his sleeve. Is he spoiling for a fight, or perhaps dismissing us with a widely recognized vulgar insult? Conversely, is he simply throwing his hand up in defeat as a gesture of resignation?
 

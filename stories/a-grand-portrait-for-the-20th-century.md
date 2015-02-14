@@ -16,7 +16,6 @@ One could hardly conceive of a more devastating depiction of post-WWII angst. Ba
 ---
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_null.jpg)
-![](http://cdn.dx.artsmia.org/thumbs/tn_null.jpg)
 
 Bacon drew inspiration from an extensive collection of clippings, photographs, and reproductions of old masterworks. He significantly transformed these visual references into his own horrific visions by isolating, distorting, and fragmenting a motif against a mysterious, empty background. Because Bacon worked from secondary sources and not from life, his works often have the frozen quality of a photograph.
 

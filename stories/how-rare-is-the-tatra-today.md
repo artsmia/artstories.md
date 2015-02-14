@@ -12,7 +12,7 @@ Very few art museums have Tatras, though their popularity has increased over the
 
 ---
 
-<video src='http://cdn.dx.artsmia.org/videos/artstories/My_Classic_Car_Season_16_Episode_2_-_Jay_Leno's_Tatra_&amp;_Lambo.mp4'></video>
+<video src='http://cdn.dx.artsmia.org/videos/artstories/My_Classic_Car_Season_16_Episode_2_-_Jay_Leno_Tatra.mp4'></video>
 
 Tatras are becoming more and more popular among collectors, including entertainer Jay Leno. For the show "My Classic Car," Leno discusses the peculiarities of the Tatra before taking it for a spin.
 

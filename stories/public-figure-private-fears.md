@@ -1,6 +1,7 @@
 # [Public Figure, Private Fears](http://artsmia.github.io/griot/#/stories/1124)
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_null.jpg)
+![](http://cdn.dx.artsmia.org/thumbs/tn_null.jpg)
 
 Goya became an official painter for the Spanish court in 1786 and was popular as a portraitist at court, despite the fact that he made no attempt to flatter his subjects—not even the Brigadier of Engineers. Here Colonel Garicini, an official in the War Department, is shown formally in the uniform of the Corps of Engineers, while his pregnant wife, Josefa, is portrayed quite informally with loose hair and house clothes.
 

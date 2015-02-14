@@ -28,6 +28,6 @@ Otto Dix's "Stormtruppe geht unter Gas vor (Storm Troops Advance under a Gas Att
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_mia_2018690.jpg)
 
-Goya's etching "Y no hay remedio (And it cannot be helped)" from his "The Disasters of War" series.
+Goya's etching "Y no hay remedio (And it cannot be helped)" from his *The Disasters of War* series.
 
 ---

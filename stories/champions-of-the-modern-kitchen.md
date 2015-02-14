@@ -1,6 +1,6 @@
 # [Champions of the Modern Kitchen](http://artsmia.github.io/griot/#/stories/2145)
 
-![](http://cdn.dx.artsmia.org/thumbs/tn_null.jpg)
+![](http://cdn.dx.artsmia.org/thumbs/tn_2014_TDX_MIAArtStories_386.jpg)
 
 By the late 1800s, the kitchen needed a makeover. Kitchens were a hodgepodge of equipment because many activities—cooking, bathing, sleeping—took place there. They were unsanitary, under-ventilated, and inefficient: Coal or wood stoves polluted the air, the table doubled as a work surface and dining space, and each feature of the kitchen (cupboards, sink, stove, etc.) was a stand-alone piece, placed in the room with little consideration to logical function.
 
@@ -9,7 +9,7 @@ By the late 1800s, the kitchen needed a makeover. Kitchens were a hodgepodge of 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_2014_TDX_MIAArtStories_319.jpg)
 ![](http://cdn.dx.artsmia.org/thumbs/tn_2014_TDX_MIAArtStories_318.jpg)
 
-Americans Catherine Beecher and Christine Frederick (1883-1970) both considered improving kitchen design. In the 1870s, Beecher proposed integrated components and continuous work surfaces; in the early 1900s, Frederick studied kitchen efficiency—how people move through the space and use equipment--and reorganized the space to better suit common tasks. Both published their ideas promoting home management and hygiene. 
+Americans Catharine Beecher (1800-78) and Christine Frederick (1883-1970) both considered improving kitchen design. In the 1870s, Beecher proposed integrated components and continuous work surfaces; in the early 1900s, Frederick studied kitchen efficiency—how people move through the space and use equipment--and reorganized the space to better suit common tasks. Both published their ideas promoting home management and hygiene. 
 
 ---
 
