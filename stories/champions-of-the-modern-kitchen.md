@@ -22,7 +22,7 @@ null
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_mia_1003547.jpg)
 
-Frankfurt kitchens designer  Schütte-Lihotzky studied train dining cars, ship galleys, and the studies of Christine Frederick. She knew that to reduce the burden of household work, every space must be utilized in the most logical, hygienic, and efficient manner—like a laboratory or factory. The kitchen was solely a food preparation space: metal surfaces allowed for easy cleaning; beech wood counters prevented bacteria; and a large window provided ventilation and fresh air. And everything was within arm’s reach, to saved the homeowner valuable time.
+Frankfurt kitchens designer Schütte-Lihotzky studied train dining cars, ship galleys, and the studies of Christine Frederick. She knew that to reduce the burden of household work, every space must be utilized in the most logical, hygienic, and efficient manner—like a laboratory or factory. The kitchen was solely a food preparation space: metal surfaces allowed for easy cleaning; beech wood counters prevented bacteria; and a large window provided ventilation and fresh air. And everything was within arm’s reach, to save the homeowner valuable time.
 
 ---
 

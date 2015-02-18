@@ -2,7 +2,7 @@
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_2014_TDX_MIAArtStories_338.jpg)
 
-The Imperial Treasury is one of the most impressive collections of rare European treasures, amassed by  The Hofburg (Castle of the Habsburg Corut), Vienna. It’s located at the Swiss Courtyard, originally rebuilt for the treasury by Ferdinand I, and occupies more than 21 rooms. The vast collection is divided into secular, ecclesiastical (church related), and household items.
+The Imperial Treasury is one of the most impressive collections of rare European treasures, amassed by The Hofburg (Castle of the Habsburg Corut), Vienna. It’s located at the Swiss Courtyard, originally rebuilt for the treasury by Ferdinand I, and occupies more than 21 rooms. The vast collection is divided into secular, ecclesiastical (church related), and household items.
 
 ---
 

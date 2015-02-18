@@ -2,7 +2,7 @@
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_mia_5001702.jpg)
 
-Van Gogh, like many Impressionist and Post-Impressionist artists, was profoundly influenced by Eugene Delacroix, the groundbreaking French painter. When Van Gogh moved to the south of Friance and began to paint his famous series of olive trees, he continuously referred to Delacroix and his art. “The murmur of an olive grove has something very intimate, immensely old about it,” he wrote to his brother Théo. “It is too beautiful for me to dare paint it or able to form an idea of it…the olive tree, if you want to compare it to something, is like Delacroix.”
+Van Gogh, like many Impressionist and Post-Impressionist artists, was profoundly influenced by Eugene Delacroix, the groundbreaking French painter. When Van Gogh moved to the south of France and began to paint his famous series of olive trees, he continuously referred to Delacroix and his art. “The murmur of an olive grove has something very intimate, immensely old about it,” he wrote to his brother Théo. “It is too beautiful for me to dare paint it or able to form an idea of it…the olive tree, if you want to compare it to something, is like Delacroix.”
 
 ---
 

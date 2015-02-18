@@ -6,7 +6,7 @@ Goya had been seriously ill once before, when he was 46, and afterwards was comp
 
 ---
 
-![](http://cdn.dx.artsmia.org/thumbs/tn_null.jpg)
+![](http://cdn.dx.artsmia.org/thumbs/tn_2014_TDX_MIAArtStories_397.jpg)
 
 By the time he was an old man, Goya had lost hope for the ideas of the Enlightenment. The French revolutionaries had turned brutal. The new king of Spain proved even crueler than his predecessors. The world seemed a terrible place to Goya, who began painting horrifying figures on the walls of his new house. (These murals, known as the “Black Paintings,” were later cut from the walls and taken to the Museo del Prado in Madrid.) His illness must have seemed yet another calamity.
 

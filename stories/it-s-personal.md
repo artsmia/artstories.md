@@ -13,8 +13,8 @@ It is tempting to imagine that Rembrandt turned the tragic story of Lucretia int
 
 ---
 
-![](http://cdn.dx.artsmia.org/thumbs/tn_2014_TDX_MIAArtStories_285.jpg)
-![](http://cdn.dx.artsmia.org/thumbs/tn_mia_5013801.jpg)
+![](http://cdn.dx.artsmia.org/thumbs/tn_2014_TDX_MIAArtStories_391.jpg)
+![](http://cdn.dx.artsmia.org/thumbs/tn_2014_TDX_MIAArtStories_393.jpg)
 
 The debate rages. Did Rembrandt intend to compare Hendrickje, steadfastly loyal in the face of public humiliation, to the virtuous Lucretia? Or do his Lucretias resemble Hendrickje simply because he had painted her so often? Or, does Lucretia resemble Hendrickje because the painter’s model was the couple’s 12-year-old daughter, Cornelia? The answers went to the grave with Rembrandt in 1669.
 

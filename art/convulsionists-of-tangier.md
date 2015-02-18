@@ -30,4 +30,5 @@ Count de Mornay later recalled that he and Delacroix had witnessed the pilgrimag
 * [Delacroix's Palette](../stories/delacroix-s-palette.md)
 * [The Origin of Orientalism](../stories/the-origin-of-orientalism.md)
 * [Sketching the Journey](../stories/sketching-the-journey.md)
+* [Van Gogh's Delacroix Obsession](../stories/van-gogh-s-delacroix-obsession.md)
 * [The Empire Builder](../stories/the-empire-builder.md)

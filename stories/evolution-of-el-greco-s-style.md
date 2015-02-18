@@ -18,7 +18,7 @@ By 1570, El Greco begins to elongate and twist his figures.
 
 ---
 
-![](http://cdn.dx.artsmia.org/thumbs/tn_null.jpg)
+![](http://cdn.dx.artsmia.org/thumbs/tn_2014_TDX_MIAArtStories_390.jpg)
 
 The artistic moves made in 1570 are much more pronounced by 1600. The actors are further contorted and architectural space begins to warp and sag.
 

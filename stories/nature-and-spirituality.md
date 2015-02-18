@@ -16,7 +16,7 @@ Van Gogh distrusted modern religious painting as much as he distrusted modern re
 
 ---
 
-![](http://cdn.dx.artsmia.org/thumbs/tn_2014_TDX_MIAArtStories_358.jpg)
+![](http://cdn.dx.artsmia.org/thumbs/tn_2014_TDX_MIAArtStories_376.jpg)
 ![](http://cdn.dx.artsmia.org/thumbs/tn_2014_TDX_MIAArtStories_358.jpg)
 
 At the same time that he began painting the olive groves surrounding the asylum, he began to paint the cypress trees that dotted the grounds. He was completely captivated, writing, “…it astonishes me that they have not been done as I see them. They are beautiful in line and proportion like an Egyptian obelisk. And the green has such a distinguished quality.”

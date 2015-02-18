@@ -14,7 +14,7 @@ Charles VI had officially decreed that his daughter could inherit the family pos
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_2014_TDX_MIAArtStories_330.jpg)
 
-For eight years, war engulfed Europe as states battled for power. It was the first true world war, spreading to the Americas and India. When it ended, in 1748, Maria Theresa governed as Archduchess of Austria and Queen of Hungary over her former terrorities, except for the state of Silesia, which was given to Prussia.
+For eight years, war engulfed Europe as states battled for power. It was the first true world war, spreading to the Americas and India. When it ended, in 1748, Maria Theresa governed as Archduchess of Austria and Queen of Hungary over her former territories, except for the state of Silesia, which was given to Prussia.
 
 ---
 

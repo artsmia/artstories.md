@@ -22,3 +22,4 @@ Hokusai called this work *Fine Wind, Clear Weather*, evoking the coloring of Mou
 * [Katsushika Hokusai (1760–1849)](../stories/katsushika-hokusai-1760-1849.md)
 * [Hokusai’s Masterpiece Series Thirty-six Views of Mount Fuji](../stories/hokusai-s-masterpiece-series-thirty-six-views-of-mount-fuji.md)
 * [Color Variations, Copies, and Reproductions](../stories/color-variations-copies-and-reproductions.md)
+* [Japonisme](../stories/japonisme.md)
