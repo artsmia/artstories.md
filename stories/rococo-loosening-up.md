@@ -2,7 +2,7 @@
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_2014_TDX_MIAArtStories_222.jpg)
 
-The term Rococo probably derives from the French rocaille (decorative stonework of grottos, fountains, and shells) and coquillage (a shell)—popular imagery among French tastemakers of the early 1700s. Taking their cue from natural forms, Rococo designers splashed curving, asymmetrical shapes onto everything from wall decorations and mirrors to serving dishes and knick-knacks.
+The term Rococo probably derives from the French *rocaille* (decorative stonework of grottos, fountains, and shells) and *coquillage* (a shell)—popular imagery among French tastemakers of the early 1700s. Taking their cue from natural forms, *Rococo* designers splashed curving, asymmetrical shapes onto everything from wall decorations and mirrors to serving dishes and knick-knacks.
 
 ---
 

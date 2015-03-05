@@ -1,7 +1,7 @@
 # [Settling in America](http://artsmia.github.io/griot/#/stories/1130)
 
-![](http://cdn.dx.artsmia.org/thumbs/tn_null.jpg)
-![](http://cdn.dx.artsmia.org/thumbs/tn_null.jpg)
+![](http://cdn.dx.artsmia.org/thumbs/tn_2014_TDX_MIAArtStories_407.jpg)
+![](http://cdn.dx.artsmia.org/thumbs/tn_2014_TDX_MIAArtStories_406.jpg)
 
 Soon after Beckmann arrived in America, the City Art Museum of St. Louis (now the St. Louis Art Museum) organized his first American retrospective. 
 

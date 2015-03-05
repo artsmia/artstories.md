@@ -14,19 +14,19 @@ The following summer, working together in the small fishing port of Collioure (w
 
 ---
 
-![](http://cdn.dx.artsmia.org/thumbs/tn_null.jpg)
+![](http://cdn.dx.artsmia.org/thumbs/tn_mia_5018814.jpg)
 
 Just a few years after helping launch the Fauvist movement, Matisse’s works were noticeably more subdued and ordered. This change began slowly in 1907, the year of *Three Bathers* or *Boy with a Butterfly Net*, both here at the MIA. The artist intentionally started to reduce the elements in his paintings, down to the most basic line, form, and color, often without any background and setting. His goal was to get to the “essential character of things.”
 
 ---
 
-![](http://cdn.dx.artsmia.org/thumbs/tn_null.jpg)
+![](http://cdn.dx.artsmia.org/thumbs/tn_2014_TDX_MIAArtStories_405.jpg)
 
 Matisse’s artistic endeavors followed varying paths in the years to follow. Trips to southern Spain, Russia, and Morocco inspired many of his works. The Cubist art of Spaniards Pablo Picasso and Juan Gris, the jewel-like icons in Russia, and the brilliant light and color of the exotic land of Morocco captivated him.
 
 ---
 
-![](http://cdn.dx.artsmia.org/thumbs/tn_null.jpg)
+![](http://cdn.dx.artsmia.org/thumbs/tn_mia_5020206.jpg)
 
 In 1917, Matisse settled in Nice in the South of France, where he would remain for the rest of his life. Thus began a lengthy period in which he turned his focus to light: its effect as it fell on his female models and on the items he arranged in his house. He painted the female figure in various poses, states of undress, and different clothing. He also took to painting outdoors as a way to not only study the light, but to rejuvenate himself and his connection to nature.
 
@@ -38,7 +38,7 @@ In 1932, Dr. Albert Barnes, the Pennsylvania inventor who made millions off an a
 
 ---
 
-![](http://cdn.dx.artsmia.org/thumbs/tn_null.jpg)
+![](http://cdn.dx.artsmia.org/thumbs/tn_PCD20001031_0772_IMG0014.jpg)
 
 In 1941, Matisse was diagnosed with cancer and underwent surgery for a tumor. Afterward, he remained in a wheelchair and drawing, book illustration, and cutouts were favored media of choice until his death in 1954. 
 

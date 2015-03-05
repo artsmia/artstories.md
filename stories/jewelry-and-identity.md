@@ -9,9 +9,8 @@ Here, a bride from West Bengal wears a traditional crown made of shola pith bark
 ---
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_2014_TDX_MIAArtStories_074.jpg)
-![](http://cdn.dx.artsmia.org/thumbs/tn_2014_TDX_MIAArtStories_096.jpg)
 
-Jewelry often displays marital status, as demonstrated in this photo of a married woman from Gujarat in northwestern India. While women of all ages can wear a circular nose ring in her left nostril, the 16 upper-arm and twelve lower-arm ivory bangles in addition to other bangles of gold and glass denote her married status. The woman’s nasal septum piercing might also connote her marital status, and some of her necklaces probably were wedding gifts.
+Jewelry often displays marital status, as demonstrated in this photo of an unwed girl from Gujarat in northwestern India. She wears a circular nose ring in her left nostril and ivory bangles. When she is married, she will wear 16 upper arm and 12 lower arm ivory bangles in addition to other bangles of gold and glass.
 
 ---
 
