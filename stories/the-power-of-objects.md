@@ -1,4 +1,4 @@
-# [The Power of Objects](http://artsmia.github.io/griot/#/stories/1060)
+# [The Power of Objects](http://artstories.artsmia.org/#/stories/1060)
 
 <video src='http://cdn.dx.artsmia.org/videos/artstories/Contemporary_artist_Willie_Cole_works_with_shoes.mp4'></video>
 

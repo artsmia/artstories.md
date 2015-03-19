@@ -1,4 +1,4 @@
-# [Piranesi Side Table](http://artsmia.github.io/griot/#/o/8023)
+# [Piranesi Side Table](http://artstories.artsmia.org/#/o/8023)
 ![Piranesi Side Table](http://api.artsmia.org/images/8023/large.jpg)
 
 The ancient Romans were supposedly logical, orderly, restrained. When European tastemakers around 1750 translated their ideas of ancient Rome into a design style they called Neoclassical—literally “new classical”—they focused on symmetry, balance, and straight geometric lines. But Giovanni Battista Piranesi (1720–78), a well-known Italian printmaker, envisioned the Roman world more like a party. Riffing on Neoclassical motifs, he bent the lines into curvaceous flamboyance, like the over-the-top Rococo style that had charmed Europe a few decades earlier. An artist should be able to blend inspiration from various times and places, he argued, which is exactly what he did with this top pier table, usually set against a wall and often beneath a mirror.

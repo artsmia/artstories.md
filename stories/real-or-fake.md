@@ -1,4 +1,4 @@
-# [Real or Fake?](http://artsmia.github.io/griot/#/stories/207)
+# [Real or Fake?](http://artstories.artsmia.org/#/stories/207)
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_mia_5021127.jpg)
 

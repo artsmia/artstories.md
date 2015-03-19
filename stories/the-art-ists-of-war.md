@@ -1,4 +1,4 @@
-# [The Art(ists) of War](http://artsmia.github.io/griot/#/stories/1444)
+# [The Art(ists) of War](http://artstories.artsmia.org/#/stories/1444)
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_2014_TDX_MIAArtStories_127.jpg)
 

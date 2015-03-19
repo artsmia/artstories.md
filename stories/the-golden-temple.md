@@ -1,4 +1,4 @@
-# [The Golden Temple](http://artsmia.github.io/griot/#/stories/578)
+# [The Golden Temple](http://artstories.artsmia.org/#/stories/578)
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_mia_29516a.jpg)
 

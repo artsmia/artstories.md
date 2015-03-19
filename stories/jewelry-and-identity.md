@@ -1,4 +1,4 @@
-# [Jewelry and Identity](http://artsmia.github.io/griot/#/stories/576)
+# [Jewelry and Identity](http://artstories.artsmia.org/#/stories/576)
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_2014_TDX_MIAArtStories_073.jpg)
 

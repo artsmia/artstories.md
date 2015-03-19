@@ -1,4 +1,4 @@
-# [It's Personal](http://artsmia.github.io/griot/#/stories/1112)
+# [It's Personal](http://artstories.artsmia.org/#/stories/1112)
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_2014_TDX_MIAArtStories_285.jpg)
 

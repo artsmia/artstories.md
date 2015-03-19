@@ -1,4 +1,4 @@
-# [Provenance: A Record of Ownership](http://artsmia.github.io/griot/#/stories/336)
+# [Provenance: A Record of Ownership](http://artstories.artsmia.org/#/stories/336)
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_mia_5036291.jpg)
 

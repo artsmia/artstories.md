@@ -1,4 +1,4 @@
-# [Friendship Blanket](http://artsmia.github.io/griot/#/o/112568)
+# [Friendship Blanket](http://artstories.artsmia.org/#/o/112568)
 ![Friendship Blanket](http://api.artsmia.org/images/112568/large.jpg)
 
 From French silk ribbons, Italian glass beads, and an English woolen blanket comes this quintessentially Osage (Wazhazhe) kind of art: a Friendship Blanket. The Osage migrated west from the Ohio River valley to present-day Arkansas, Missouri, Kansas, and Oklahoma. And although they came across many imported materials, this never diluted their native aesthetics. Instead, they used these new items to enhance traditional designs and refine their techniques. Friendship blankets, as the name suggests, embody affection and connection, and are made as gifts. During a dance, the red hands gently sway back and forth—symbols of friendship. 

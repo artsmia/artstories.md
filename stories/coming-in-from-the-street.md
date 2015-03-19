@@ -1,4 +1,4 @@
-# [Coming in from the Street](http://artsmia.github.io/griot/#/stories/1071)
+# [Coming in from the Street](http://artstories.artsmia.org/#/stories/1071)
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_null.jpg)
 

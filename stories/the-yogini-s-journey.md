@@ -1,4 +1,4 @@
-# [The Yogini’s Journey](http://artsmia.github.io/griot/#/stories/569)
+# [The Yogini’s Journey](http://artstories.artsmia.org/#/stories/569)
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_mia_6007432.jpg)
 

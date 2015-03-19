@@ -1,4 +1,4 @@
-# [Why Tapestries?](http://artsmia.github.io/griot/#/stories/2124)
+# [Why Tapestries?](http://artstories.artsmia.org/#/stories/2124)
 
 <video src='http://cdn.dx.artsmia.org/videos/artstories/MET_hanging_tapestry.mp4'></video>
 

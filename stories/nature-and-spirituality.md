@@ -1,4 +1,4 @@
-# [Nature and Spirituality](http://artsmia.github.io/griot/#/stories/1119)
+# [Nature and Spirituality](http://artstories.artsmia.org/#/stories/1119)
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_2014_TDX_MIAArtStories_377.jpg)
 ![](http://cdn.dx.artsmia.org/thumbs/tn_2014_TDX_MIAArtStories_356.jpg)

@@ -1,4 +1,4 @@
-# [Daikakuji Temple](http://artsmia.github.io/griot/#/stories/516)
+# [Daikakuji Temple](http://artstories.artsmia.org/#/stories/516)
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_2014_TDX_MIAArtStories_060.jpg)
 

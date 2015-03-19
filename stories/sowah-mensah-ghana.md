@@ -1,4 +1,4 @@
-# [Sowah Mensah, Ghana](http://artsmia.github.io/griot/#/stories/377)
+# [Sowah Mensah, Ghana](http://artstories.artsmia.org/#/stories/377)
 
 <video src='http://cdn.dx.artsmia.org/videos/Voices_Sowah_iPad.mp4'></video>
 

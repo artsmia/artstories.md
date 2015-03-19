@@ -1,4 +1,4 @@
-# [When Women Rule](http://artsmia.github.io/griot/#/stories/2230)
+# [When Women Rule](http://artstories.artsmia.org/#/stories/2230)
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_2014_TDX_MIAArtStories_329.jpg)
 

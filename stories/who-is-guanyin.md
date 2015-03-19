@@ -1,4 +1,4 @@
-# [Who Is Guanyin?](http://artsmia.github.io/griot/#/stories/846)
+# [Who Is Guanyin?](http://artstories.artsmia.org/#/stories/846)
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_100625_mia341_0075.jpg)
 

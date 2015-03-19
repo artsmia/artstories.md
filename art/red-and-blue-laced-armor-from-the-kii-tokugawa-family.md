@@ -1,4 +1,4 @@
-# [Red-and-blue-laced Armor from the Kii Tokugawa Family](http://artsmia.github.io/griot/#/o/108860)
+# [Red-and-blue-laced Armor from the Kii Tokugawa Family](http://artstories.artsmia.org/#/o/108860)
 ![Red-and-blue-laced Armor from the Kii Tokugawa Family](http://api.artsmia.org/images/108860/large.jpg)
 
 This Japanese armor was probably never worn in battle. Too bad—it was frightening and frighteningly well-built. The suit includes a helmet, face-mask, shoulder guards, cuirass (breast plate and back plate), forearm sleeves, thigh guards, shin guards, and bear-fur boots. Specialized craftsmen laced together hundreds of lacquered metal and leather plates with red and indigo silk cords to give the suit its distinctive appearance and flexibility. It was tailor-made, likely for a high-ranking official from the Kii Tokugawa family and possibly Tokugawa Yorinobu himself (1602–71), the founder of that family branch. 

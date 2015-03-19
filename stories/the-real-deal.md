@@ -1,4 +1,4 @@
-# [The Real Deal?](http://artsmia.github.io/griot/#/stories/2280)
+# [The Real Deal?](http://artstories.artsmia.org/#/stories/2280)
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_null.jpg)
 ![](http://cdn.dx.artsmia.org/thumbs/tn_mia_2009840.jpg)

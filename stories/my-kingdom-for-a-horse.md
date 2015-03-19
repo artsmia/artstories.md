@@ -1,4 +1,4 @@
-# [My Kingdom For a Horse!](http://artsmia.github.io/griot/#/stories/2275)
+# [My Kingdom For a Horse!](http://artstories.artsmia.org/#/stories/2275)
 
 The Kingdom of Mali, centrally located among trade routes, dominated West Africa from the 1200s to the 1500s. Mali’s mansas, or kings, grew fabulously wealthy by controlling the region’s trade. Exploiting the kingdom’s own resources didn’t hurt: the south produced almost half the gold of Africa, Europe, and Asia; the north produced salt that was almost as valuable as gold to southern regions. 
 

@@ -1,4 +1,4 @@
-# [Warrior with Shield](http://artsmia.github.io/griot/#/o/1244)
+# [Warrior with Shield](http://artstories.artsmia.org/#/o/1244)
 ![Warrior with Shield](http://api.artsmia.org/images/1244/large.jpg)
 
 Balancing between glory and destruction— to view this statue is to observe the opposing outcomes of war.  Artist Henry Moore is most known for sculpting reclining female figures with gentle lines and soft edges.  His style takes on new meaning when it is used to convey the violence of combat.  A reclining figure is a man struggling to stay upright.  Soft dimples are the gruesome marks of wounds.  Rounded edges are the shocking ends of missing limbs.  In the aftermath of World War II, Moore uses the balance between the softness of style and the brutality of subject to capture the shift between romantic ideas of heroism and the tragic realities of war.

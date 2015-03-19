@@ -1,4 +1,4 @@
-# [Hokusai’s Masterpiece Series Thirty-six Views of Mount Fuji](http://artsmia.github.io/griot/#/stories/617)
+# [Hokusai’s Masterpiece Series Thirty-six Views of Mount Fuji](http://artstories.artsmia.org/#/stories/617)
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_mia_36592a.jpg)
 

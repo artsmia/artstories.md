@@ -1,4 +1,4 @@
-# [An Indian Icon](http://artsmia.github.io/griot/#/stories/565)
+# [An Indian Icon](http://artstories.artsmia.org/#/stories/565)
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_2014_TDX_MIAArtStories_076.jpg)
 ![](http://cdn.dx.artsmia.org/thumbs/tn_2014_TDX_MIAArtStories_085.jpg)

@@ -1,4 +1,4 @@
-# [Yogini Holding a Jar](http://artsmia.github.io/griot/#/o/1380)
+# [Yogini Holding a Jar](http://artstories.artsmia.org/#/o/1380)
 ![Yogini Holding a Jar](http://api.artsmia.org/images/1380/large.jpg)
 
 She is at once ferocious and kind, wrathful and gentle, a fierce goddess with a dual divine nature. Once enshrined in a 10th-century open-air circular temple, this yogini would have sat alongside perhaps 108 other goddesses patiently waiting for devotees to visit. She is one of 19 known sculptures from the same temple that now reside in a dozen museums in America, Europe, and India. The yogini’s monumental size but serene expression emphasize her power of balance, her union of opposites, and would have deeply moved those who prayed to her, perhaps for a cure for illness. 

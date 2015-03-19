@@ -1,4 +1,4 @@
-# [The New Frankfurt: Modern, Post-WWI Suburbs](http://artsmia.github.io/griot/#/stories/2142)
+# [The New Frankfurt: Modern, Post-WWI Suburbs](http://artstories.artsmia.org/#/stories/2142)
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_2014_TDX_MIAArtStories_316.jpg)
 

@@ -1,4 +1,4 @@
-# [The Meaning of Nataraja](http://artsmia.github.io/griot/#/stories/560)
+# [The Meaning of Nataraja](http://artstories.artsmia.org/#/stories/560)
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_2014_TDX_MIAArtStories_063.jpg)
 

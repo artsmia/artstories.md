@@ -1,4 +1,4 @@
-# [Melencolia I](http://artsmia.github.io/griot/#/o/113568)
+# [Melencolia I](http://artstories.artsmia.org/#/o/113568)
 ![Melencolia I](http://api.artsmia.org/images/113568/large.jpg)
 
 A magnificent angel broods while a dog sleeps at its feet and a chubby child—a *putto*—sits on a millstone, scribbling away on a tablet. We may never know what this all means, but it certainly touches on many of Dürer’s interests: the artist as creator, mathematics, and the relationships between the physical, intellectual, and spiritual realms. Little was written about it when he made it in 1514, though it became one of the most discussed works in the history of art, a manifesto on knowing the unknowable and making the unmakeable. 

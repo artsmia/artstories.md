@@ -1,4 +1,4 @@
-# [Frank](http://artsmia.github.io/griot/#/o/1721)
+# [Frank](http://artstories.artsmia.org/#/o/1721)
 ![Frank](http://api.artsmia.org/images/1721/large.jpg)
 
 Frank is deceiving. From afar, the portrait looks like a larger-than-life photograph, but up close you discover that it’s paint on canvas. In a sense, it’s both. Chuck Close transformed an 8x10-inch photograph of his friend, Frank James, into a painting by dividing the photo into a grid and copying each section onto the canvas on a much larger scale. He used only two tablespoons of diluted paint to cover the entire canvas, abandoning traditional brushes in favor of airbrushes, sponges, his fingers, razors, even an eraser fastened to an electric drill. The realistic finish, blemishes included, make Frank one detailed dude.

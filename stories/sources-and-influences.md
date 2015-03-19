@@ -1,4 +1,4 @@
-# [Sources and Influences](http://artsmia.github.io/griot/#/stories/1192)
+# [Sources and Influences](http://artstories.artsmia.org/#/stories/1192)
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_2014_TDX_MIAArtStories_355.jpg)
 

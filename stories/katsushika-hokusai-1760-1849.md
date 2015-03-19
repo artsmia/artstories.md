@@ -1,4 +1,4 @@
-# [Katsushika Hokusai (1760–1849)](http://artsmia.github.io/griot/#/stories/619)
+# [Katsushika Hokusai (1760–1849)](http://artstories.artsmia.org/#/stories/619)
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_2014_TDX_MIAArtStories_161.jpg)
 

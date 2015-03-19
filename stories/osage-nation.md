@@ -1,4 +1,4 @@
-# [Osage Nation](http://artsmia.github.io/griot/#/stories/1997)
+# [Osage Nation](http://artstories.artsmia.org/#/stories/1997)
 
 <video src='http://cdn.dx.artsmia.org/videos/artstories/Journey_of_the_Osage.mp4'></video>
 

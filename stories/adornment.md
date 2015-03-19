@@ -1,4 +1,4 @@
-# [Adornment](http://artsmia.github.io/griot/#/stories/573)
+# [Adornment](http://artstories.artsmia.org/#/stories/573)
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_mia_29516a.jpg)
 

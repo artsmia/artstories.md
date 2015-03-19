@@ -1,4 +1,4 @@
-# [Artist Biography: Mona Hatoum](http://artsmia.github.io/griot/#/stories/1063)
+# [Artist Biography: Mona Hatoum](http://artstories.artsmia.org/#/stories/1063)
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_null.jpg)
 

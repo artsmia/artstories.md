@@ -1,4 +1,4 @@
-# [The Story Behind the Photo](http://artsmia.github.io/griot/#/stories/1573)
+# [The Story Behind the Photo](http://artstories.artsmia.org/#/stories/1573)
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_2014_TDX_MIAArtStories_194.jpg)
 

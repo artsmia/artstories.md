@@ -1,4 +1,4 @@
-# [Perfection vs. Poetry](http://artsmia.github.io/griot/#/stories/817)
+# [Perfection vs. Poetry](http://artstories.artsmia.org/#/stories/817)
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_mia_4000940.jpg)
 

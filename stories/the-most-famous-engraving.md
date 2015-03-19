@@ -1,4 +1,4 @@
-# [The Most Famous Engraving](http://artsmia.github.io/griot/#/stories/1317)
+# [The Most Famous Engraving](http://artstories.artsmia.org/#/stories/1317)
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_mia_5030740.jpg)
 

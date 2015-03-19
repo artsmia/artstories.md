@@ -1,4 +1,4 @@
-# [Rue Transnonain, le 15 Avril, 1834](http://artsmia.github.io/griot/#/o/43877)
+# [Rue Transnonain, le 15 Avril, 1834](http://artstories.artsmia.org/#/o/43877)
 ![Rue Transnonain, le 15 Avril, 1834](http://api.artsmia.org/images/43877/large.jpg)
 
 It could hardly be more gruesome: a child lies dead beneath the corpse of his father; his murdered mother lies in the shadows. They were among the family of 19 men, women, and children killed by French troops during the 1834 Paris worker uprising, ostensibly for their involvement in an attack on soldiers. Three generations had lived in close quarters under one roof, and the eerie quiet of a family sleeping at night belies the shock of this scene, which became a universal symbol of inhumanity.

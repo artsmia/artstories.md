@@ -1,4 +1,4 @@
-# [Pair of Earspools](http://artsmia.github.io/griot/#/o/678)
+# [Pair of Earspools](http://artstories.artsmia.org/#/o/678)
 ![Pair of Earspools](http://api.artsmia.org/images/678/large.jpg)
 
 You wouldn’t wear these earrings to the gym. In fact you wouldn’t wear these elaborate golden ear spools at all unless you were a Chimu ruler, and then only for public appearances around your vast empire in the coastal desert of northern Peru. The artist who made them used sophisticated metalworking techniques to create varied textures, concave and convex surfaces, and dangling discs, the better to shimmer in the hot sun as the ruler paraded with them in his impressively stretched earlobes.

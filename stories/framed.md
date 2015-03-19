@@ -1,4 +1,4 @@
-# [Framed](http://artsmia.github.io/griot/#/stories/1148)
+# [Framed](http://artstories.artsmia.org/#/stories/1148)
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_mia_47846a.jpg)
 

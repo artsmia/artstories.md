@@ -1,4 +1,4 @@
-# [Tusk](http://artsmia.github.io/griot/#/o/1312)
+# [Tusk](http://artstories.artsmia.org/#/o/1312)
 ![Tusk](http://api.artsmia.org/images/1312/medium.jpg)
 
 The elephant is the king of the jungle (no matter what the lion says). And its power, when push comes to poke, is in its tusks. It’s no surprise, then, that tusks have long made fitting canvases on which to celebrate the rule of kings and other powerful leaders in Africa, in this case the ancestors of a military commander, or *ezomo*, in Benin, who commissioned this tusk between 1775 and 1777.

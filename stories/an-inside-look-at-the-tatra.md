@@ -1,4 +1,4 @@
-# [An Inside Look at the Tatra](http://artsmia.github.io/griot/#/stories/1823)
+# [An Inside Look at the Tatra](http://artstories.artsmia.org/#/stories/1823)
 
 <video src='http://cdn.dx.artsmia.org/videos/artstories/Meet_the_Tatra_T87.mp4'></video>
 

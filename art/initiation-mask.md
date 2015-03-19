@@ -1,4 +1,4 @@
-# [Initiation Mask](http://artsmia.github.io/griot/#/o/1937)
+# [Initiation Mask](http://artstories.artsmia.org/#/o/1937)
 ![Initiation Mask](http://api.artsmia.org/images/1937/medium.jpg)
 
 This one is all about the women. The day you received your drivers’ license, the night you crammed your toes into high heels and wobbled into the world four inches taller—these are typical milestones in the march to womanhood. But in parts of Liberia and Sierra Leone, a mask like this one is a major marker. Elder women wear them during the initiation of girls into womanhood, when they are instructed in ethics, marriage, childcare, personal finance, and traditional songs and dances. The mask reflects their shared aspirations: the carefully ordered hair, high forehead, downcast eyes, and dark skin are all Mende ideals of feminine beauty.

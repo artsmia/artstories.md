@@ -1,4 +1,4 @@
-# [The CEO's of the Plains](http://artsmia.github.io/griot/#/stories/1995)
+# [The CEO's of the Plains](http://artstories.artsmia.org/#/stories/1995)
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_2014_TDX_MIAArtStories_231.jpg)
 

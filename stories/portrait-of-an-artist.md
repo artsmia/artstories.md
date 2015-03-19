@@ -1,4 +1,4 @@
-# [Portrait of an Artist](http://artsmia.github.io/griot/#/stories/1099)
+# [Portrait of an Artist](http://artstories.artsmia.org/#/stories/1099)
 
 <video src='http://cdn.dx.artsmia.org/videos/artstories/Video3_Chuck_Close-_Why_portraits.mp4'></video>
 

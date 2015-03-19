@@ -1,4 +1,4 @@
-# [44 Plates from a Christian illuminated album](http://artsmia.github.io/griot/#/stories/316)
+# [44 Plates from a Christian illuminated album](http://artstories.artsmia.org/#/stories/316)
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_mia_5015369.jpg)
 

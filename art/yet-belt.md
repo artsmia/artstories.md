@@ -1,4 +1,4 @@
-# [Yet Belt](http://artsmia.github.io/griot/#/o/3778)
+# [Yet Belt](http://artstories.artsmia.org/#/o/3778)
 ![Yet Belt](http://api.artsmia.org/images/3778/medium.jpg)
 
 Bling fit for a king. Heavy with bead and shell pendants, this *yet* belt was once part of the elaborate outfit worn by the king of the Kuba people in the Democratic Republic of Congo. None of the pendants match, a show of creativity and innovation prized by Kuba leaders. In fact, the notoriously fashion-conscious kings often help create patterns and symbols that become part of their personal “brand,” broadcasting authority and influence. Only the king and a few select members of his entourage can wear his signature designs.

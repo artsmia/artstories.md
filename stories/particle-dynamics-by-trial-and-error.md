@@ -1,4 +1,4 @@
-# [Particle Dynamics by Trial and Error](http://artsmia.github.io/griot/#/stories/1087)
+# [Particle Dynamics by Trial and Error](http://artstories.artsmia.org/#/stories/1087)
 
 <video src='null'></video>
 

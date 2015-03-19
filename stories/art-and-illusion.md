@@ -1,4 +1,4 @@
-# [Art and Illusion](http://artsmia.github.io/griot/#/stories/1084)
+# [Art and Illusion](http://artstories.artsmia.org/#/stories/1084)
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_null.jpg)
 

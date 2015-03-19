@@ -1,4 +1,4 @@
-# [Themes of Collectivity](http://artsmia.github.io/griot/#/stories/1080)
+# [Themes of Collectivity](http://artstories.artsmia.org/#/stories/1080)
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_null.jpg)
 

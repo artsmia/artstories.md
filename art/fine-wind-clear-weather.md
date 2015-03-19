@@ -1,4 +1,4 @@
-# [Fine Wind, Clear Weather](http://artsmia.github.io/griot/#/o/7505)
+# [Fine Wind, Clear Weather](http://artstories.artsmia.org/#/o/7505)
 ![Fine Wind, Clear Weather](http://api.artsmia.org/images/7505/large.jpg)
 
 Even if you’ve never seen it, you know something about Mt. Fuji: it’s famous, having given its name to Fujifilm, Fuji Bicycles, Fujitsu, Fuji Heavy Industries (Subaru’s parent company), etc. Mt. Fuji, actually an active volcano, is part of the national soul, and always has been. In 2010, nearly 321,000 people climbed its summit—a record—and in 2013 it was added to the UNESCO World Heritage List. The artist Hokusai, like many artists before and since, made Mt. Fuji the subject of his work, the wood block print series *36 Views of Mt Fuji*. *Red Fuji*, one of Hokusai’s most iconic works, shows Japan’s highest mountain from the Lake Kawaguchi area. 

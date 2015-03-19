@@ -1,4 +1,4 @@
-# [Dance](http://artsmia.github.io/griot/#/stories/281)
+# [Dance](http://artstories.artsmia.org/#/stories/281)
 
 <video src='http://cdn.dx.artsmia.org/videos/MaskDancingAfrica-fromSayre.mp4'></video>
 

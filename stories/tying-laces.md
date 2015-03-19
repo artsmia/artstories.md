@@ -1,4 +1,4 @@
-# [Tying Laces](http://artsmia.github.io/griot/#/stories/1115)
+# [Tying Laces](http://artstories.artsmia.org/#/stories/1115)
 
 <video src='http://cdn.dx.artsmia.org/videos/artstories/Learn_How_To_Use_a_Spiders_Web_Filling_Stitch.mp4'></video>
 

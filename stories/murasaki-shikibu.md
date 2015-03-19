@@ -1,4 +1,4 @@
-# [Murasaki Shikibu](http://artsmia.github.io/griot/#/stories/798)
+# [Murasaki Shikibu](http://artstories.artsmia.org/#/stories/798)
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_mia_5010986.jpg)
 

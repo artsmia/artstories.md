@@ -1,4 +1,4 @@
-# [Throw (C-918)](http://artsmia.github.io/griot/#/o/109112)
+# [Throw (C-918)](http://artstories.artsmia.org/#/o/109112)
 ![Throw (C-918)](http://api.artsmia.org/images/109112/large.jpg)
 
 The circular shapes marking the black surface only hint at the photograph’s origin. But picture this: The artist stands alone in a pitch-dark room with only a sheet of light sensitive color paper and a sharp instrument. He places the paper on the ground and rotates it as he presses the tool against its surface, as though engraving a copper plate. Remember, the artist is in the dark, so he cannot see his marks. Only when the paper’s chemicals are exposed to light do the marks magically appear and reveal layers of color.  

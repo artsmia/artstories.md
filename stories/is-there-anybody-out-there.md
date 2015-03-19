@@ -1,4 +1,4 @@
-# [Is There Anybody Out There?](http://artsmia.github.io/griot/#/stories/1082)
+# [Is There Anybody Out There?](http://artstories.artsmia.org/#/stories/1082)
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_null.jpg)
 

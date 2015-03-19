@@ -1,4 +1,4 @@
-# [The Measure of Man: Average Trumps Ideal](http://artsmia.github.io/griot/#/stories/822)
+# [The Measure of Man: Average Trumps Ideal](http://artstories.artsmia.org/#/stories/822)
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_mia_1028301.jpg)
 

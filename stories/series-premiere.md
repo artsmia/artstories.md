@@ -1,4 +1,4 @@
-# [Series Premiere](http://artsmia.github.io/griot/#/stories/1167)
+# [Series Premiere](http://artstories.artsmia.org/#/stories/1167)
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_2014_TDX_MIAArtStories_280.jpg)
 ![](http://cdn.dx.artsmia.org/thumbs/tn_mia_4000201.jpg)

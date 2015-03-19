@@ -1,4 +1,4 @@
-# [Evolution of El Greco's Style](http://artsmia.github.io/griot/#/stories/1204)
+# [Evolution of El Greco's Style](http://artstories.artsmia.org/#/stories/1204)
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_2014_TDX_MIAArtStories_284.jpg)
 

@@ -1,4 +1,4 @@
-# [Coaci Inkstand](http://artsmia.github.io/griot/#/o/1748)
+# [Coaci Inkstand](http://artstories.artsmia.org/#/o/1748)
 ![Coaci Inkstand](http://api.artsmia.org/images/1748/large.jpg)
 
 You wouldn’t use this inkstand to write your grocery list. At more than two feet tall, made of silver, red marble, and lapis lazuli—a semi-precious blue stone—it’s one of the most imaginative examples of Italian decorative arts from the 1700s. Silversmith Vincenzo Coaci designed it in 1792 to commemorate a monument made several years earlier, when Pope Pius XV had a recently discovered ancient obelisk moved to the Quirinal Piazza, next to his summer residence. There, it was surrounded by two huge horsemen that had stood in that spot since their creation around 400. Topped with a cross, this rearrangement of ancient artifacts from the pagan past was an expression of papal power and a triumph of engineering.  

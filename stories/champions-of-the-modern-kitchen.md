@@ -1,4 +1,4 @@
-# [Champions of the Modern Kitchen](http://artsmia.github.io/griot/#/stories/2145)
+# [Champions of the Modern Kitchen](http://artstories.artsmia.org/#/stories/2145)
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_2014_TDX_MIAArtStories_386.jpg)
 

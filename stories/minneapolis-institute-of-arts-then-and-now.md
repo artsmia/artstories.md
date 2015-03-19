@@ -1,4 +1,4 @@
-# [Minneapolis Institute of Arts: Then and Now](http://artsmia.github.io/griot/#/stories/1855)
+# [Minneapolis Institute of Arts: Then and Now](http://artstories.artsmia.org/#/stories/1855)
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_2014_TDX_MIAArtStories_310.jpg)
 ![](http://cdn.dx.artsmia.org/thumbs/tn_060811_mia153_003.jpg)

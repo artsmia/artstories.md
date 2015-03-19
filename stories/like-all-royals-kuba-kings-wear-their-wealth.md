@@ -1,4 +1,4 @@
-# [Like all royals, Kuba kings wear their wealth.](http://artsmia.github.io/griot/#/stories/304)
+# [Like all royals, Kuba kings wear their wealth.](http://artstories.artsmia.org/#/stories/304)
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_2013_TDXAfrica_040_01_2.jpg)
 

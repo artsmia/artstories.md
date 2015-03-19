@@ -1,4 +1,4 @@
-# [Fukami Sueharu](http://artsmia.github.io/griot/#/stories/611)
+# [Fukami Sueharu](http://artstories.artsmia.org/#/stories/611)
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_2014_TDX_MIAArtStories_166.jpg)
 ![](http://cdn.dx.artsmia.org/thumbs/tn_2014_TDX_MIAArtStories_169.jpg)

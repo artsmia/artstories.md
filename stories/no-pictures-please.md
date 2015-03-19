@@ -1,4 +1,4 @@
-# [No Pictures Please](http://artsmia.github.io/griot/#/stories/1422)
+# [No Pictures Please](http://artstories.artsmia.org/#/stories/1422)
 
 <video src='http://cdn.dx.artsmia.org/videos/marco-brewer.mp4'></video>
 

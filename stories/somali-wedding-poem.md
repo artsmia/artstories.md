@@ -1,4 +1,4 @@
-# [Somali Wedding Poem](http://artsmia.github.io/griot/#/stories/330)
+# [Somali Wedding Poem](http://artstories.artsmia.org/#/stories/330)
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_mia_5022435.jpg)
 

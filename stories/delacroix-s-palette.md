@@ -1,4 +1,4 @@
-# [Delacroix's Palette](http://artsmia.github.io/griot/#/stories/1152)
+# [Delacroix's Palette](http://artstories.artsmia.org/#/stories/1152)
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_mia_1006298.jpg)
 ![](http://cdn.dx.artsmia.org/thumbs/tn_mia_5001143.jpg)

@@ -1,4 +1,4 @@
-# [Gold of the Andes](http://artsmia.github.io/griot/#/stories/2232)
+# [Gold of the Andes](http://artstories.artsmia.org/#/stories/2232)
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_2014_TDX_MIAArtStories_241.jpg)
 

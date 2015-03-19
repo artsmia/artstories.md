@@ -1,4 +1,4 @@
-# [Grainstack, Sun in the Mist](http://artsmia.github.io/griot/#/o/10436)
+# [Grainstack, Sun in the Mist](http://artstories.artsmia.org/#/o/10436)
 ![Grainstack, Sun in the Mist](http://api.artsmia.org/images/10436/large.jpg)
 
 What happens to light when summer turns to autumn, the moon rises, or a soft snow falls? Monet found the answers, painting the same familiar scene near his home in Giverny in all seasons, at all hours, in all kinds of weather. A grainstack sits broadly in a field, the edges of its silhouette glowing as the sun climbs amid a cool mist to illuminate the landscape. Orange, yellow, green, and violet dance across the field as the earth meets the sky in a hazy blur. For Monet, this light was just as much the subject of his work as the grainstack itself.

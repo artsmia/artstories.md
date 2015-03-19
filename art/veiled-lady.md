@@ -1,4 +1,4 @@
-# [Veiled Lady](http://artsmia.github.io/griot/#/o/12092)
+# [Veiled Lady](http://artstories.artsmia.org/#/o/12092)
 ![Veiled Lady](http://cdn.dx.artsmia.org/thumbs/tn_mia_6018803.jpg)
 
 She is no one in particular. In fact, she exists only in your mind—a beautiful illusion, an elegant parlor trick, played by a sculptor to show off his skill. You can’t see through stone any more than you can saw a woman in half onstage. But tricks of light and polish, as well as the supple curves of the veil, suggest that you can. Veiled statues, widely produced in the 18th century and again in the 19th, were set on pedestals in the elegant homes of Europe as irresistible conversation pieces, anonymous beauties hiding behind a veil of virtuosity.

@@ -1,4 +1,4 @@
-# [Life at Kirkwood Plantation](http://artsmia.github.io/griot/#/stories/891)
+# [Life at Kirkwood Plantation](http://artstories.artsmia.org/#/stories/891)
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_2014_TDX_MIAArtStories_138.jpg)
 

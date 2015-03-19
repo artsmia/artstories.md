@@ -1,4 +1,4 @@
-# [Zoomorphic Altar (Boli)](http://artsmia.github.io/griot/#/o/115514)
+# [Zoomorphic Altar (Boli)](http://artstories.artsmia.org/#/o/115514)
 ![Zoomorphic Altar (Boli)](http://api.artsmia.org/images/115514/medium.jpg)
 
 It looks like a lumpy blob of dirt, more accident than art. But don’t let its humble looks fool you. The *boli* couldn’t have a larger, deeper purpose: it’s a portable altar and a symbol of the entire universe, imbued with spiritual energy. The *boli* came from the Bamana community in Mali and, as is often the case with indigenous African traditions, it was created by a team of artists, elders, and religious specialists to express in physical form some complex ideas and beliefs. Hidden deep inside is a small cloth doll. Over time, as bone, bark, nuts, soil, animal blood, and other natural materials are added to the *boli*, its spiritual energy increases.

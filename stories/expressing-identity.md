@@ -1,4 +1,4 @@
-# [Expressing Identity](http://artsmia.github.io/griot/#/stories/382)
+# [Expressing Identity](http://artstories.artsmia.org/#/stories/382)
 
 <video src='http://cdn.dx.artsmia.org/videos/AfricanGalleries_ExpressingIdentity_iPad.mp4'></video>
 

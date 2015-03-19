@@ -1,4 +1,4 @@
-# [Minimalism: What You See is What You See](http://artsmia.github.io/griot/#/stories/1093)
+# [Minimalism: What You See is What You See](http://artstories.artsmia.org/#/stories/1093)
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_null.jpg)
 

@@ -1,4 +1,4 @@
-# [Rococo: Loosening up](http://artsmia.github.io/griot/#/stories/2544)
+# [Rococo: Loosening up](http://artstories.artsmia.org/#/stories/2544)
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_2014_TDX_MIAArtStories_222.jpg)
 

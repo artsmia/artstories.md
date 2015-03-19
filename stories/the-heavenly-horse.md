@@ -1,4 +1,4 @@
-# [The “Heavenly Horse”](http://artsmia.github.io/griot/#/stories/729)
+# [The “Heavenly Horse”](http://artstories.artsmia.org/#/stories/729)
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_2014_TDX_MIAArtStories_304.jpg)
 

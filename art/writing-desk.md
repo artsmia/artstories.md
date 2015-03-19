@@ -1,4 +1,4 @@
-# [Writing Desk](http://artsmia.github.io/griot/#/o/113926)
+# [Writing Desk](http://artstories.artsmia.org/#/o/113926)
 ![Writing Desk](http://api.artsmia.org/images/113926/large.jpg)
 
 Knives, forks, spoons, flasks, a pistol—more than 70 ordinary objects are carved and adhered to the façade of this writing desk. Why? As with most folk art, the answer is more complicated than it would appear, divorced from art history trends and almost inscrutably personal. William Howard worked at Kirkwood Plantation in Mississippi as a freed man after the Civil War, where he was likely inspired by the furniture. The symmetry and structure of his desk echo the Federal style, popular two generations earlier, that was inspired by classical Greek and Roman art. By taking an ornamental approach to these unassuming utensils, as only he thought to do, he turned his desk into a masterpiece of American folk art.

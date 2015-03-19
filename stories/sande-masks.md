@@ -1,4 +1,4 @@
-# [Sande Masks](http://artsmia.github.io/griot/#/stories/283)
+# [Sande Masks](http://artstories.artsmia.org/#/stories/283)
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_mia_2009434.jpg)
 

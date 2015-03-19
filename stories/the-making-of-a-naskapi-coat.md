@@ -1,4 +1,4 @@
-# [The Making of a Naskapi Coat](http://artsmia.github.io/griot/#/stories/2187)
+# [The Making of a Naskapi Coat](http://artstories.artsmia.org/#/stories/2187)
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_2014_TDX_MIAArtStories_255.jpg)
 

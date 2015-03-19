@@ -1,4 +1,4 @@
-# [The Empire Builder](http://artsmia.github.io/griot/#/stories/918)
+# [The Empire Builder](http://artstories.artsmia.org/#/stories/918)
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_2014_TDX_MIAArtStories_300.jpg)
 

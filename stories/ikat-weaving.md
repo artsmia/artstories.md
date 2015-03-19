@@ -1,4 +1,4 @@
-# [Ikat Weaving](http://artsmia.github.io/griot/#/stories/246)
+# [Ikat Weaving](http://artstories.artsmia.org/#/stories/246)
 
 <video src='http://cdn.dx.artsmia.org/videos/IkatTimeLapse.mp4'></video>
 

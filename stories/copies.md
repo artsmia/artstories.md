@@ -1,4 +1,4 @@
-# [Copies](http://artsmia.github.io/griot/#/stories/582)
+# [Copies](http://artstories.artsmia.org/#/stories/582)
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_2014_TDX_MIAArtStories_062.jpg)
 

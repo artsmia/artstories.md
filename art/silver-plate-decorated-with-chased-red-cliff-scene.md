@@ -1,4 +1,4 @@
-# [Silver Plate Decorated with Chased “Red Cliff” Scene](http://artsmia.github.io/griot/#/o/114429)
+# [Silver Plate Decorated with Chased “Red Cliff” Scene](http://artstories.artsmia.org/#/o/114429)
 ![Silver Plate Decorated with Chased “Red Cliff” Scene](http://api.artsmia.org/images/114429/large.jpg)
 
 *In the autumn of 1082, on the 16th of the seventh month, Master Su and his guests sailed in a boat below the Red Cliffs. Clear wind blew gently, the water was calm. The boaters raised their wine and poured for each other, reciting “The Bright Moon” and singing “The Lovely One.”  *

@@ -1,4 +1,4 @@
-# [Frankfurt Kitchen](http://artsmia.github.io/griot/#/o/95937)
+# [Frankfurt Kitchen](http://artstories.artsmia.org/#/o/95937)
 ![Frankfurt Kitchen](http://api.artsmia.org/images/95937/large.jpg)
 
 The destruction of World War I, combined with changing demographics, created a major housing shortage in Germany in the 1920s and 30s.  Designers and architects developed innovative living spaces to meet the needs of modern families while also keeping construction costs down. When creating her kitchen design, Austrian architect Margarete Schütte-Lihotzky turned to unlikely sources for inspiration: railway cars and passenger ships.  Her kitchen, later dubbed the Frankfurt Kitchen, was efficient, compact, clean . . . and equally important, could be mass-produced: it was installed in about 10,000 new apartments.  Look out the large window for a view of the new post-WWI housing complex in which this kitchen was originally placed. 

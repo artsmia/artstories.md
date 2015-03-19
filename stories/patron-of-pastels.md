@@ -1,4 +1,4 @@
-# [Patron of Pastels](http://artsmia.github.io/griot/#/stories/2904)
+# [Patron of Pastels](http://artstories.artsmia.org/#/stories/2904)
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_2014_TDX_MIAArtStories_211.jpg)
 
@@ -10,8 +10,6 @@ A letter to Gavet indicates that Millet was at work on *The Church at Chailly* i
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_2014_TDX_MIAArtStories_205.jpg)
 
-View of the Church of Chailly
-
-By Poudou99 (own work). Licensed under CC BY-SA 3.0 via Wikimedia Commons
+Image by Poudou99 (own work). Licensed under CC BY-SA 3.0 via Wikimedia Commons
 
 ---

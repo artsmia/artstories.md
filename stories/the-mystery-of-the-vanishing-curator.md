@@ -1,4 +1,4 @@
-# [The Mystery of the Vanishing Curator](http://artsmia.github.io/griot/#/stories/2849)
+# [The Mystery of the Vanishing Curator](http://artstories.artsmia.org/#/stories/2849)
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_130130_mia327_002.jpg)
 

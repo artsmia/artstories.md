@@ -1,4 +1,4 @@
-# [An Emperor for the Arts](http://artsmia.github.io/griot/#/stories/835)
+# [An Emperor for the Arts](http://artstories.artsmia.org/#/stories/835)
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_2014_TDX_MIAArtStories_104.jpg)
 

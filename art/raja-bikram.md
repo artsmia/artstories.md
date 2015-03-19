@@ -1,4 +1,4 @@
-# [Raja Bikram](http://artsmia.github.io/griot/#/o/4829)
+# [Raja Bikram](http://artstories.artsmia.org/#/o/4829)
 ![Raja Bikram](http://api.artsmia.org/images/4829/large.jpg)
 
 He has taken their clothes and stuffed them in a bag under his arm. But it’s not what you think. He needs the beautiful fairies’ assistance, and is holding their clothes until they agree to help, an action which is a common trope from South Asian literature and religious mythology. King Raja Bikram, as depicted in this scene from a *Gulshan-i ‘Ishq* manuscript, has been unable to bear a child with his queen. So he’s on a journey to find a solution. Finding the winged fairies, he demands that they take him to see a holy man, who ultimately gives Bikram a magic, pregnancy-inducing fruit.

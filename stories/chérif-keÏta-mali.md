@@ -1,4 +1,4 @@
-# [Chérif KeÏta, Mali ](http://artsmia.github.io/griot/#/stories/392)
+# [Chérif KeÏta, Mali ](http://artstories.artsmia.org/#/stories/392)
 
 <video src='http://cdn.dx.artsmia.org/videos/Voices_Cherif_iPad.mp4'></video>
 

@@ -1,4 +1,4 @@
-# [Nail Fetish](http://artsmia.github.io/griot/#/stories/325)
+# [Nail Fetish](http://artstories.artsmia.org/#/stories/325)
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_2013_TDXAfrica_078_01.jpg)
 

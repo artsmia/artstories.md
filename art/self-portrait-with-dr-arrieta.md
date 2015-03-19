@@ -1,4 +1,4 @@
-# [Self-Portrait with Dr. Arrieta](http://artsmia.github.io/griot/#/o/1226)
+# [Self-Portrait with Dr. Arrieta](http://artstories.artsmia.org/#/o/1226)
 ![Self-Portrait with Dr. Arrieta](http://api.artsmia.org/images/1226/large.jpg)
 
 He is not well. His face is nearly as pale as the bed sheets. He’s too weak even to drink without help. And are those figures in the shadows real or hallucinations? Who knows? The old man has succumbed to that familiar feeling of weak and aching muscles, mind confused by feverish dreams, days lost to sleep. The painter of this picture—Francisco Goya, in a self-portrait—knew illness all too well. The younger man was his doctor, Eugenio Garcia Arrieta. Goya recovered to live another eight years and produce many more pictures, including this gift of thanks for his doctor.

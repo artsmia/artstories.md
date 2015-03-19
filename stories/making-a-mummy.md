@@ -1,4 +1,4 @@
-# [Making a Mummy](http://artsmia.github.io/griot/#/stories/249)
+# [Making a Mummy](http://artstories.artsmia.org/#/stories/249)
 
 <video src='http://cdn.dx.artsmia.org/videos/HowtoMakeaMummy-1gFY7ST-Tws.mp4'></video>
 

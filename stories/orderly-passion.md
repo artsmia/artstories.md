@@ -1,4 +1,4 @@
-# [Orderly Passion](http://artsmia.github.io/griot/#/stories/1134)
+# [Orderly Passion](http://artstories.artsmia.org/#/stories/1134)
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_mia_5000664_Detail1.jpg)
 

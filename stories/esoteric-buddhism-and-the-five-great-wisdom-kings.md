@@ -1,4 +1,4 @@
-# [Esoteric Buddhism and the Five Great Wisdom Kings](http://artsmia.github.io/griot/#/stories/605)
+# [Esoteric Buddhism and the Five Great Wisdom Kings](http://artstories.artsmia.org/#/stories/605)
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_2014_TDX_MIAArtStories_296.jpg)
 

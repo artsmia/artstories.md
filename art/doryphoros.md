@@ -1,4 +1,4 @@
-# [Doryphoros](http://artsmia.github.io/griot/#/o/3520)
+# [Doryphoros](http://artstories.artsmia.org/#/o/3520)
 ![Doryphoros](http://api.artsmia.org/images/3520/large.jpg)
 
 The ideal body. We all want it, and our never-ending struggle to get it sells magazines and gym memberships and Spanx (when we finally give up). Ideals of beauty vary between cultures, but the idea of the ideal is in everyone’s nature. Thousands of years ago, the celebrated Greek sculptor Polykleitos argued that the human ideal could be distilled down to numbers, and offered The Doryphoros, or Spear Bearer, as the perfect man, reflecting mathematically precise proportions. This is one of the four surviving Roman copies of the Greek original, now lost. 

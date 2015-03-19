@@ -1,4 +1,4 @@
-# [Sketching the Journey](http://artsmia.github.io/griot/#/stories/1150)
+# [Sketching the Journey](http://artstories.artsmia.org/#/stories/1150)
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_2014_TDX_MIAArtStories_217.jpg)
 

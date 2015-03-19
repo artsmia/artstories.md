@@ -1,4 +1,4 @@
-# [Jade Mountains](http://artsmia.github.io/griot/#/stories/839)
+# [Jade Mountains](http://artstories.artsmia.org/#/stories/839)
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_mia_1004284.jpg)
 

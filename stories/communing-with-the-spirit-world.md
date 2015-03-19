@@ -1,4 +1,4 @@
-# [Communing with the Spirit World](http://artsmia.github.io/griot/#/stories/380)
+# [Communing with the Spirit World](http://artstories.artsmia.org/#/stories/380)
 
 <video src='http://cdn.dx.artsmia.org/videos/AfricanGalleries_CommuningwiththeSpiritWorld_iPad.mp4'></video>
 

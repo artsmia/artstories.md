@@ -1,4 +1,4 @@
-# [Brazil’s Father of Aviation ](http://artsmia.github.io/griot/#/stories/1065)
+# [Brazil’s Father of Aviation ](http://artstories.artsmia.org/#/stories/1065)
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_null.jpg)
 

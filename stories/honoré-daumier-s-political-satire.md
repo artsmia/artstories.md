@@ -1,4 +1,4 @@
-# [Honoré Daumier's Political Satire](http://artsmia.github.io/griot/#/stories/1356)
+# [Honoré Daumier's Political Satire](http://artstories.artsmia.org/#/stories/1356)
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_2014_TDX_MIAArtStories_200.jpg)
 

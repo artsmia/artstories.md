@@ -1,4 +1,4 @@
-# [Myths in Marble](http://artsmia.github.io/griot/#/stories/1805)
+# [Myths in Marble](http://artstories.artsmia.org/#/stories/1805)
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_mia_4001462.jpg)
 

@@ -1,4 +1,4 @@
-# [Quality Control](http://artsmia.github.io/griot/#/stories/2542)
+# [Quality Control](http://artstories.artsmia.org/#/stories/2542)
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_2014_TDX_MIAArtStories_226.jpg)
 

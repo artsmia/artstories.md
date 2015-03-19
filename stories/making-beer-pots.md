@@ -1,4 +1,4 @@
-# [Making Beer Pots](http://artsmia.github.io/griot/#/stories/154)
+# [Making Beer Pots](http://artstories.artsmia.org/#/stories/154)
 
 <video src='http://cdn.dx.artsmia.org/videos/MakingBeerPotsClay.mp4'></video>
 

@@ -1,4 +1,4 @@
-# [The MIA: Part of a Grand Scheme for Minneapolis](http://artsmia.github.io/griot/#/stories/1860)
+# [The MIA: Part of a Grand Scheme for Minneapolis](http://artstories.artsmia.org/#/stories/1860)
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_null.jpg)
 

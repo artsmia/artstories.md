@@ -1,4 +1,4 @@
-# [Second-Hand Reading](http://artsmia.github.io/griot/#/o/119599)
+# [Second-Hand Reading](http://artstories.artsmia.org/#/o/119599)
 ![Second-Hand Reading](http://api.artsmia.org/images/119599/large.jpg)
 
 Here’s a heavy question: How do you represent the trauma of history? The answer is usually uninspired: dreary, hard-to-watch images that don’t tell us anything new about suffering.  Kentridge was more original. His animated video is an unusual, diary-like take on race relations during apartheid, the South African system of racial segregation that was the law of the land from 1948 to 1994. It is serious and meditative, yet engaging and hopeful. As a cartoon character, he makes, erases, and remakes drawings within an old how-to book to emphasize that there are no formulas, only change. The book’s pages turn, like the movement of time, to mournful music by South African composer Neo Muyanga.

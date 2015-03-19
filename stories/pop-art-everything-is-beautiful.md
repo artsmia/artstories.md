@@ -1,4 +1,4 @@
-# [Pop Art: Everything is Beautiful](http://artsmia.github.io/griot/#/stories/1105)
+# [Pop Art: Everything is Beautiful](http://artstories.artsmia.org/#/stories/1105)
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_null.jpg)
 

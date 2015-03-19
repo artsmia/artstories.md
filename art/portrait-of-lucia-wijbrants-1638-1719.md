@@ -1,4 +1,4 @@
-# [Portrait of Lucia Wijbrants (1638-1719)](http://artsmia.github.io/griot/#/o/4418)
+# [Portrait of Lucia Wijbrants (1638-1719)](http://artstories.artsmia.org/#/o/4418)
 ![Portrait of Lucia Wijbrants (1638-1719)](http://api.artsmia.org/images/4418/large.jpg)
 
 We can now put a name to this face. For centuries, this painting was known simply as *Portrait of a Woman*. But recent research revealed the identity of this elegantly dressed lady: Lucia Wijbrants (1638–1719), the wealthy widow of a Dutch cloth merchant. She stands at her dressing table, surrounded by her personal—and rather expensive—possessions, while the frisky spaniel at her feet begs for her attention.

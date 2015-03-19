@@ -1,4 +1,4 @@
-# [Boli](http://artsmia.github.io/griot/#/stories/364)
+# [Boli](http://artstories.artsmia.org/#/stories/364)
 
 <video src='http://cdn.dx.artsmia.org/videos/Boli.m4v'></video>
 

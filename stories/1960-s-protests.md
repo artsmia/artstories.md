@@ -1,4 +1,4 @@
-# [1960's Protests](http://artsmia.github.io/griot/#/stories/1728)
+# [1960's Protests](http://artstories.artsmia.org/#/stories/1728)
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_2014_TDX_MIAArtStories_345.jpg)
 

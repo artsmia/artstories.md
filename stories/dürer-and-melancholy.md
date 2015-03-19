@@ -1,4 +1,4 @@
-# [Dürer and Melancholy](http://artsmia.github.io/griot/#/stories/1303)
+# [Dürer and Melancholy](http://artstories.artsmia.org/#/stories/1303)
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_mia_6020535.jpg)
 

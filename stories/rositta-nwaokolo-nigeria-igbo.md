@@ -1,4 +1,4 @@
-# [Rositta Nwaokolo, Nigeria (Igbo)](http://artsmia.github.io/griot/#/stories/390)
+# [Rositta Nwaokolo, Nigeria (Igbo)](http://artstories.artsmia.org/#/stories/390)
 
 <video src='http://cdn.dx.artsmia.org/videos/Voices_Rosita_iPad.mp4'></video>
 

@@ -1,4 +1,4 @@
-# [Celestial Horse](http://artsmia.github.io/griot/#/o/60728)
+# [Celestial Horse](http://artstories.artsmia.org/#/o/60728)
 ![Celestial Horse](http://api.artsmia.org/images/60728/large.jpg)
 
 It’s a blend of real and ideal, the perfect mount for getting around in the afterlife. The bronze beauty captures the spirit of the horses imported by the Chinese elite from the West during the Han Dynasty. Nicknamed celestial or heavenly horses, they were prized for their size and strength at a time when the Chinese had only a small, pony-like breed. Aristocratic families would have bronze horses like this one cast and placed in elaborately furnished tombs for the deceased to use in the world beyond.

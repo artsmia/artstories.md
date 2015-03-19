@@ -1,4 +1,4 @@
-# [Playing with Art's Big Ideas](http://artsmia.github.io/griot/#/stories/1103)
+# [Playing with Art's Big Ideas](http://artstories.artsmia.org/#/stories/1103)
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_null.jpg)
 

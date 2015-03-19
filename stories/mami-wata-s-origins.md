@@ -1,4 +1,4 @@
-# [Mami Wata's Origins](http://artsmia.github.io/griot/#/stories/323)
+# [Mami Wata's Origins](http://artstories.artsmia.org/#/stories/323)
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_2013_TDXAfrica_011_01.jpg)
 

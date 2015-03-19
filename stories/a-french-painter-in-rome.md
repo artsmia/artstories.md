@@ -1,4 +1,4 @@
-# [A French Painter in Rome](http://artsmia.github.io/griot/#/stories/1132)
+# [A French Painter in Rome](http://artstories.artsmia.org/#/stories/1132)
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_2014_TDX_MIAArtStories_381.jpg)
 

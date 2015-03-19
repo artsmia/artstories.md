@@ -1,4 +1,4 @@
-# [Public Figure, Private Fears](http://artsmia.github.io/griot/#/stories/1124)
+# [Public Figure, Private Fears](http://artstories.artsmia.org/#/stories/1124)
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_2014_TDX_MIAArtStories_395.jpg)
 ![](http://cdn.dx.artsmia.org/thumbs/tn_2014_TDX_MIAArtStories_396.jpg)

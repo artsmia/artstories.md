@@ -1,4 +1,4 @@
-# [Diagram of an Artist](http://artsmia.github.io/griot/#/stories/1107)
+# [Diagram of an Artist](http://artstories.artsmia.org/#/stories/1107)
 
 <video src='http://cdn.dx.artsmia.org/videos/artstories/Diagram_of_an_Artist-_Roy_Lichtenstein.mp4'></video>
 

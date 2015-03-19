@@ -1,4 +1,4 @@
-# [Evolution of Style](http://artsmia.github.io/griot/#/stories/1142)
+# [Evolution of Style](http://artstories.artsmia.org/#/stories/1142)
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_2014_TDX_MIAArtStories_388.jpg)
 

@@ -1,4 +1,4 @@
-# [Rudrakshamala Necklace](http://artsmia.github.io/griot/#/o/4379)
+# [Rudrakshamala Necklace](http://artstories.artsmia.org/#/o/4379)
 ![Rudrakshamala Necklace](http://api.artsmia.org/images/4379/large.jpg)
 
 Gleaming gold, luscious rubies, ornately cast designs and figures—who wouldn’t want to wear this fabulous necklace? It was once destined for the very wealthy neck of either a Brahmin priest or a Chettiar merchant, (the Chettiars are historically a business community with ties to the region of Tamil Nadu), who would have worn it on his 60th birthday. The large reddish-brown beads are seeds from the Rudraksha tree, which is associated with the god Shiva, and are prized for their auspicious properties said to bring wealth, health, and a change of fate to their owners. The golden figures are all associated with the god Shiva, connecting the wearer to his holy presence. 

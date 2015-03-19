@@ -1,4 +1,4 @@
-# [The Tale of the Tusk](http://artsmia.github.io/griot/#/stories/233)
+# [The Tale of the Tusk](http://artstories.artsmia.org/#/stories/233)
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_111103_mia348_H7_3719.jpg)
 ![](http://cdn.dx.artsmia.org/thumbs/tn_111103_mia348_I5_3685.jpg)

@@ -1,4 +1,4 @@
-# [Japonisme](http://artsmia.github.io/griot/#/stories/1160)
+# [Japonisme](http://artstories.artsmia.org/#/stories/1160)
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_2014_TDX_MIAArtStories_352.jpg)
 

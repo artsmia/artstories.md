@@ -1,4 +1,4 @@
-# [Tarkor Zehn, Liberia](http://artsmia.github.io/griot/#/stories/375)
+# [Tarkor Zehn, Liberia](http://artstories.artsmia.org/#/stories/375)
 
 <video src='http://cdn.dx.artsmia.org/videos/Voices_Tarkor_iPad.mp4'></video>
 

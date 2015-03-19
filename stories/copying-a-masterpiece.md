@@ -1,4 +1,4 @@
-# [Copying a Masterpiece](http://artsmia.github.io/griot/#/stories/2361)
+# [Copying a Masterpiece](http://artstories.artsmia.org/#/stories/2361)
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_130911_mia328_4132.jpg)
 

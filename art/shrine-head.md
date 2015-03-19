@@ -1,4 +1,4 @@
-# [Shrine Head](http://artsmia.github.io/griot/#/o/4866)
+# [Shrine Head](http://artstories.artsmia.org/#/o/4866)
 ![Shrine Head](http://api.artsmia.org/images/4866/medium.jpg)
 
 She’s beautiful, of course. You can imagine the glint in her eye, the gleam of her lips, so realistic is this ceramic sculpture from nearly 900 years ago. In fact, in 1911, a German explorer in Africa couldn’t wrap his head around the possibility that Africans created it—it’s so different from the abstract art more typical of the continent—and instead proposed that Greek settlers had made it. We know better now, thanks to archaeology and oral history: royals in the ancient city of Ife, in present-day Nigeria, often hired artists to create life-like portraits like this in clay or bronze of themselves, friends, and family.

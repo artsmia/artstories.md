@@ -1,4 +1,4 @@
-# [How Rare Is the Tatra Today?](http://artsmia.github.io/griot/#/stories/1828)
+# [How Rare Is the Tatra Today?](http://artstories.artsmia.org/#/stories/1828)
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_2014_TDX_MIAArtStories_149.jpg)
 

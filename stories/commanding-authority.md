@@ -1,4 +1,4 @@
-# [Commanding Authority](http://artsmia.github.io/griot/#/stories/386)
+# [Commanding Authority](http://artstories.artsmia.org/#/stories/386)
 
 <video src='http://cdn.dx.artsmia.org/videos/AfricanGalleries_CommandingAuthority_iPad.mp4'></video>
 

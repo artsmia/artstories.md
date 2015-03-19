@@ -1,4 +1,4 @@
-# [Introduction: Art in Motion](http://artsmia.github.io/griot/#/stories/369)
+# [Introduction: Art in Motion](http://artstories.artsmia.org/#/stories/369)
 
 <video src='http://cdn.dx.artsmia.org/videos/AfricanGalleries_Intro_ArtInMotion_iPad.mp4'></video>
 

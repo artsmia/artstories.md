@@ -1,4 +1,4 @@
-# [Prince of Veils](http://artsmia.github.io/griot/#/stories/493)
+# [Prince of Veils](http://artstories.artsmia.org/#/stories/493)
 
 <video src='http://cdn.dx.artsmia.org/videos/12092/modesty.mp4'></video>
 

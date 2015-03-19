@@ -1,4 +1,4 @@
-# [Two Women and a Man as Mitate](http://artsmia.github.io/griot/#/stories/795)
+# [Two Women and a Man as Mitate](http://artstories.artsmia.org/#/stories/795)
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_genji-stacked2.jpg)
 

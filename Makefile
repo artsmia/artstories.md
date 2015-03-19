@@ -15,7 +15,7 @@ art: artstories.json
 		file=art/$$slug.md; \
 		echo "* [$$title](art/$$slug.md)" >> readme.md; \
 		id=$$(jq -r '.id' <<<$$json); \
-		doc="# [$$title](http://artsmia.github.io/griot/#/o/$$id)\n"; \
+		doc="# [$$title](http://artstories.artsmia.org/#/o/$$id)\n"; \
 		doc+="![$$title]($$(jq -r '.thumbnail' <<<$$json))\n"; \
 		doc+="\n$$(jq -r '.description' <<<$$json | sed 's/>n$$/>/g; s/>n</></g' | pandoc --no-wrap -f html -t markdown)"; \
 		doc+="\n\n---"; \
@@ -47,7 +47,7 @@ stories: artstories.json
 		slug=$$(echo $$title | sed -e 's/[^[:alnum:]]/-/g' | tr -s '-' | tr A-Z a-z | sed -e 's/--/-/; s/^-//; s/-$$//'); \
 		id=$$(jq -r '.id' <<<$$json); \
 		file=stories/$$slug.md; \
-		doc="# [$$title](http://artsmia.github.io/griot/#/stories/$$id)"; \
+		doc="# [$$title](http://artstories.artsmia.org/#/stories/$$id)"; \
 		echo -e "$$doc" > $$file; \
 		jq -c -r '.pages[]' <<<$$json | grep -v '^$$' | while read -r page; do \
 			text=$$(jq -r '.text' <<<$$page); \

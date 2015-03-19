@@ -1,4 +1,4 @@
-# [Nuclear Romance](http://artsmia.github.io/griot/#/stories/1577)
+# [Nuclear Romance](http://artstories.artsmia.org/#/stories/1577)
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_2014_TDX_MIAArtStories_187.jpg)
 ![](http://cdn.dx.artsmia.org/thumbs/tn_2014_TDX_MIAArtStories_195.jpg)

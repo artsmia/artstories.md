@@ -1,4 +1,4 @@
-# [Settling in America](http://artsmia.github.io/griot/#/stories/1130)
+# [Settling in America](http://artstories.artsmia.org/#/stories/1130)
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_2014_TDX_MIAArtStories_407.jpg)
 ![](http://cdn.dx.artsmia.org/thumbs/tn_2014_TDX_MIAArtStories_406.jpg)

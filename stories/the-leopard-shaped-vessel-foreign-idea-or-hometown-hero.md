@@ -1,4 +1,4 @@
-# [The Leopard-shaped Vessel: Foreign idea or hometown hero? ](http://artsmia.github.io/griot/#/stories/298)
+# [The Leopard-shaped Vessel: Foreign idea or hometown hero? ](http://artstories.artsmia.org/#/stories/298)
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_mia_4002285.jpg)
 

@@ -1,4 +1,4 @@
-# [John Bradstreet: Minneapolis Tastemaker](http://artsmia.github.io/griot/#/stories/1896)
+# [John Bradstreet: Minneapolis Tastemaker](http://artstories.artsmia.org/#/stories/1896)
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_141212_mia329_5043289.jpg)
 
@@ -32,6 +32,6 @@ Upon his death, Bradstreet bequeathed a group of Asian objects to the MIA, some 
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_mia_6004679.jpg)
 
-
+null
 
 ---

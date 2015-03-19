@@ -1,4 +1,4 @@
-# [The Importance of Caribou](http://artsmia.github.io/griot/#/stories/2184)
+# [The Importance of Caribou](http://artstories.artsmia.org/#/stories/2184)
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_2014_TDX_MIAArtStories_235.jpg)
 

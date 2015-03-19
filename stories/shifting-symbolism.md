@@ -1,4 +1,4 @@
-# [Shifting Symbolism](http://artsmia.github.io/griot/#/stories/1110)
+# [Shifting Symbolism](http://artstories.artsmia.org/#/stories/1110)
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_mia_5013801.jpg)
 

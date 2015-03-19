@@ -1,4 +1,4 @@
-# [Santos Dumont- The Father of Aviation II](http://artsmia.github.io/griot/#/o/107241)
+# [Santos Dumont- The Father of Aviation II](http://artstories.artsmia.org/#/o/107241)
 ![Santos Dumont- The Father of Aviation II](http://api.artsmia.org/images/107241/large.jpg)
 
 To Brazilians and many others, he is the father of aviation. The Rio de Janerio airport is named for him, and on a monument there a winged figure soars above the crumpled bodies of those whose earlier attempts to fly didn’t go so well. Alberto Santos-Dumont was the contemporary and equal of the Wright brothers—except in America, where his buried legacy inspired Kehinde Wiley to depict the monument in a painting. He used people he met in Rio’s slums as models, men whose background might cause them to be forgotten just as Santos-Dumont has been left on the runway of history.

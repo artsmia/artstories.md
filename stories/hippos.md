@@ -1,4 +1,4 @@
-# [Hippos](http://artsmia.github.io/griot/#/stories/334)
+# [Hippos](http://artstories.artsmia.org/#/stories/334)
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_2013_TDXAfrica_059_01.jpg)
 

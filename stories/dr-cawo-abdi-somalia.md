@@ -1,4 +1,4 @@
-# [Dr. Cawo Abdi, Somalia](http://artsmia.github.io/griot/#/stories/388)
+# [Dr. Cawo Abdi, Somalia](http://artstories.artsmia.org/#/stories/388)
 
 <video src='http://cdn.dx.artsmia.org/videos/Voices_Cawo_iPad.mp4'></video>
 

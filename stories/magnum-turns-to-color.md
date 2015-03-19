@@ -1,4 +1,4 @@
-# [Magnum Turns to Color](http://artsmia.github.io/griot/#/stories/1406)
+# [Magnum Turns to Color](http://artstories.artsmia.org/#/stories/1406)
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_mia_39244a.jpg)
 

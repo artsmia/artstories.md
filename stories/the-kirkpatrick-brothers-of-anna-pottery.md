@@ -1,4 +1,4 @@
-# [The Kirkpatrick Brothers of Anna Pottery](http://artsmia.github.io/griot/#/stories/780)
+# [The Kirkpatrick Brothers of Anna Pottery](http://artstories.artsmia.org/#/stories/780)
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_mia_21691b.jpg)
 

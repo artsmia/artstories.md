@@ -1,4 +1,4 @@
-# [Samurai Culture](http://artsmia.github.io/griot/#/stories/601)
+# [Samurai Culture](http://artstories.artsmia.org/#/stories/601)
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_mia_6019743.jpg)
 ![](http://cdn.dx.artsmia.org/thumbs/tn_mia_6019762.jpg)

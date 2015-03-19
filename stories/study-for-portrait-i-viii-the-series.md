@@ -1,4 +1,4 @@
-# [Study for Portrait I-VIII: The Series](http://artsmia.github.io/griot/#/stories/1138)
+# [Study for Portrait I-VIII: The Series](http://artstories.artsmia.org/#/stories/1138)
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_null.jpg)
 

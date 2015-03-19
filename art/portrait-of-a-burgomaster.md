@@ -1,4 +1,4 @@
-# [Portrait of a Burgomaster](http://artsmia.github.io/griot/#/o/537)
+# [Portrait of a Burgomaster](http://artstories.artsmia.org/#/o/537)
 ![Portrait of a Burgomaster](http://api.artsmia.org/images/537/large.jpg)
 
 You can tell this man is rich by the wealth he’s literally wearing on his sleeves: metal lace handmade from threads worth their weight in gold and silver. It was the most expensive part of his lavish clothing. In fact, lace like this is hard to find now because it was often melted down to make new lace in the latest pattern or converted back into currency.

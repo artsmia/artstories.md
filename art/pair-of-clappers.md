@@ -1,4 +1,4 @@
-# [Pair of Clappers](http://artsmia.github.io/griot/#/o/115320)
+# [Pair of Clappers](http://artstories.artsmia.org/#/o/115320)
 ![Pair of Clappers](http://api.artsmia.org/images/115320/medium.jpg)
 
 What is the sound of two tusks clapping? Carved from a hippopotamus tusk, this pair of human hands was designed as a musical instrument, an ancestor of the modern claves. Clapped together as a rhythm instrument, the tusks would have accompanied an Egyptian orchestra of harps, pipes, lyres, and lutes. The noise of the clappers helped drive away hostile spirits, keeping celebrations joyful.

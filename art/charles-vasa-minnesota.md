@@ -1,4 +1,4 @@
-# [Charles, Vasa, Minnesota](http://artsmia.github.io/griot/#/o/105014)
+# [Charles, Vasa, Minnesota](http://artstories.artsmia.org/#/o/105014)
 ![Charles, Vasa, Minnesota](http://api.artsmia.org/images/105014/large.jpg)
 
 He looks like a Charles. He has the sophistication, wearing college-professor glasses and sporting a full brown beard. He is tall, fit, even noble. His professorship, though, ends there. No tweed coat or thick corduroys. No leather-bound books or chapel spires in the background. Charles seems more like a Charlie. He is happy and playful, even in this bleak environment, displaying his toy airplanes with innocent joy. Whether Charles or Charlie, this Minnesota man is truly appealing and likeable. He is also alone. But that is absolutely okay.

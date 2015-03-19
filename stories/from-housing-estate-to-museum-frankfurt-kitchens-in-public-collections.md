@@ -1,4 +1,4 @@
-# [From Housing Estate to Museum: Frankfurt Kitchens in Public Collections](http://artsmia.github.io/griot/#/stories/2148)
+# [From Housing Estate to Museum: Frankfurt Kitchens in Public Collections](http://artstories.artsmia.org/#/stories/2148)
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_141212_mia329_5043314.jpg)
 ![](http://cdn.dx.artsmia.org/thumbs/tn_141212_mia329_5043313.jpg)

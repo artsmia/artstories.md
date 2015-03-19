@@ -1,4 +1,4 @@
-# [The Raw Deal of Sharecropping](http://artsmia.github.io/griot/#/stories/878)
+# [The Raw Deal of Sharecropping](http://artstories.artsmia.org/#/stories/878)
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_2014_TDX_MIAArtStories_139.jpg)
 

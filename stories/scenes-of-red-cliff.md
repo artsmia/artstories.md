@@ -1,4 +1,4 @@
-# [Scenes of Red Cliff](http://artsmia.github.io/griot/#/stories/735)
+# [Scenes of Red Cliff](http://artstories.artsmia.org/#/stories/735)
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_mia_6002945.jpg)
 

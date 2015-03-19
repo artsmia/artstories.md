@@ -1,4 +1,4 @@
-# [Ganymede and the Eagle](http://artsmia.github.io/griot/#/o/1629)
+# [Ganymede and the Eagle](http://artstories.artsmia.org/#/o/1629)
 ![Ganymede and the Eagle](http://api.artsmia.org/images/1629/large.jpg)
 
 It’s a classic story of boy meets bird. The boy is Ganymede, a beautiful prince, and the bird is Zeus, father of the Greek gods. Zeus was captivated by Ganymede’s beauty, so he disguised himself as an eagle and abducted the boy to serve as the gods’ cup bearer on Mount Olympus. That’s the myth. But Bertel Thorvaldsen’s sculpture suggests a more benign interaction as the boy stoops to offer the eagle a drink and the eagle peacefully leans forward to accept. The eagle’s beak hovers just above the boy’s drink, and the two figures—the human and the divine—are frozen mere seconds before touching. An unnerving love story is reconsidered, revising the relationship between gods and humankind.  

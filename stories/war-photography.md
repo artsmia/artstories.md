@@ -1,4 +1,4 @@
-# [War Photography](http://artsmia.github.io/griot/#/stories/1438)
+# [War Photography](http://artstories.artsmia.org/#/stories/1438)
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_mia_2023617.jpg)
 

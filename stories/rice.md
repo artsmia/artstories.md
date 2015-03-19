@@ -1,4 +1,4 @@
-# [Rice ](http://artsmia.github.io/griot/#/stories/594)
+# [Rice ](http://artstories.artsmia.org/#/stories/594)
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_2014_TDX_MIAArtStories_163.jpg)
 

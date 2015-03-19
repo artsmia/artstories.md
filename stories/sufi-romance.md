@@ -1,4 +1,4 @@
-# [Sufi Romance](http://artsmia.github.io/griot/#/stories/580)
+# [Sufi Romance](http://artstories.artsmia.org/#/stories/580)
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_mia_5042228.jpg)
 

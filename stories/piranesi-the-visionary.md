@@ -1,4 +1,4 @@
-# [Piranesi the Visionary](http://artsmia.github.io/griot/#/stories/1503)
+# [Piranesi the Visionary](http://artstories.artsmia.org/#/stories/1503)
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_2014_TDX_MIAArtStories_135.jpg)
 

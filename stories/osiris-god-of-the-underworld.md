@@ -1,4 +1,4 @@
-# [Osiris, God of the Underworld](http://artsmia.github.io/griot/#/stories/251)
+# [Osiris, God of the Underworld](http://artstories.artsmia.org/#/stories/251)
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_mia_6010296.jpg)
 

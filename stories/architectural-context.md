@@ -1,4 +1,4 @@
-# [Architectural Context](http://artsmia.github.io/griot/#/stories/571)
+# [Architectural Context](http://artstories.artsmia.org/#/stories/571)
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_2014_TDX_MIAArtStories_077.jpg)
 ![](http://cdn.dx.artsmia.org/thumbs/tn_2014_TDX_MIAArtStories_072.jpg)

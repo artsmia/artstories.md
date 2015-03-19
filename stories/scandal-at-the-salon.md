@@ -1,4 +1,4 @@
-# [Scandal at the Salon](http://artsmia.github.io/griot/#/stories/1146)
+# [Scandal at the Salon](http://artstories.artsmia.org/#/stories/1146)
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_2014_TDX_MIAArtStories_283.jpg)
 ![](http://cdn.dx.artsmia.org/thumbs/tn_2014_TDX_MIAArtStories_275.jpg)

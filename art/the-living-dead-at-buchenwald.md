@@ -1,4 +1,4 @@
-# [The Living Dead at Buchenwald](http://artsmia.github.io/griot/#/o/114514)
+# [The Living Dead at Buchenwald](http://artstories.artsmia.org/#/o/114514)
 ![The Living Dead at Buchenwald](http://api.artsmia.org/images/114514/large.jpg)
 
 Many decades now separate these men from us. But their transfixed gazes seem to fill that void in time. Bunched together, like a team, they steady themselves, some balancing a hand on barbed wire, in confident poses that belie their brutal experiences. “Survivors gaze at photographer Margaret Bourke-White and rescuers from the United States Third Army during the liberation of Buchenwald, April, 1945,” read the caption when this photograph finally appeared in *LIFE* magazine on December 26, 1960, some 15 years after it was created. Today it remains one of the most widely circulated images of all time, picture of survival and a future..

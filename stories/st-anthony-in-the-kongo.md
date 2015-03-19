@@ -1,4 +1,4 @@
-# [St. Anthony in the Kongo](http://artsmia.github.io/griot/#/stories/332)
+# [St. Anthony in the Kongo](http://artstories.artsmia.org/#/stories/332)
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_mia_6001890.jpg)
 

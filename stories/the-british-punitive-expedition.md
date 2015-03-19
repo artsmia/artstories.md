@@ -1,4 +1,4 @@
-# [The British Punitive Expedition](http://artsmia.github.io/griot/#/stories/279)
+# [The British Punitive Expedition](http://artstories.artsmia.org/#/stories/279)
 
 <video src='http://cdn.dx.artsmia.org/videos/benin1080.mp4'></video>
 

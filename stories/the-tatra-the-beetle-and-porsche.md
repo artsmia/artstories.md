@@ -1,4 +1,4 @@
-# [The Tatra, the Beetle, and Porsche](http://artsmia.github.io/griot/#/stories/1826)
+# [The Tatra, the Beetle, and Porsche](http://artstories.artsmia.org/#/stories/1826)
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_2014_TDX_MIAArtStories_119.jpg)
 ![](http://cdn.dx.artsmia.org/thumbs/tn_2014_TDX_MIAArtStories_121.jpg)

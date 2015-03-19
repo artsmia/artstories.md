@@ -1,4 +1,4 @@
-# [Power Figure](http://artsmia.github.io/griot/#/o/1854)
+# [Power Figure](http://artstories.artsmia.org/#/o/1854)
 ![Power Figure](http://api.artsmia.org/images/1854/medium.jpg)
 
 A ritual specialist created this *nkisi* figure to consult the spirit world on behalf of those who came to the figure for help. The *nkisi* served as a modern-day mediator or attorney, maintaining order, enforcing agreements, and calling out wrongdoers. But instead of a briefcase and cell-phone, its tools of the trade were the nails, mirrors, beads, shells, teeth, metal hooks, string, cloth bundles, and other things stuck to it, which defined its powers and behavior. Dirt from a graveyard, sealed into a cavity in its stomach, gave it the spiritual charge to do its work.

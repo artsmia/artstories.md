@@ -1,4 +1,4 @@
-# [Portable Gods](http://artsmia.github.io/griot/#/stories/567)
+# [Portable Gods](http://artstories.artsmia.org/#/stories/567)
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_2014_TDX_MIAArtStories_078.jpg)
 

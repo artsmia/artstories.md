@@ -1,4 +1,4 @@
-# [Inkstand Owners](http://artsmia.github.io/griot/#/stories/1481)
+# [Inkstand Owners](http://artstories.artsmia.org/#/stories/1481)
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_mia_3000209.jpg)
 

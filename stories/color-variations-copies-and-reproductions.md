@@ -1,4 +1,4 @@
-# [Color Variations, Copies, and Reproductions](http://artsmia.github.io/griot/#/stories/615)
+# [Color Variations, Copies, and Reproductions](http://artstories.artsmia.org/#/stories/615)
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_2014_TDX_MIAArtStories_155.jpg)
 

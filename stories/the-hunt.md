@@ -1,4 +1,4 @@
-# [The Hunt](http://artsmia.github.io/griot/#/stories/2174)
+# [The Hunt](http://artstories.artsmia.org/#/stories/2174)
 
 <video src='http://cdn.dx.artsmia.org/videos/artstories/caribou-export.mp4'></video>
 

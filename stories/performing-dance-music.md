@@ -1,4 +1,4 @@
-# [Performing Dance & Music](http://artsmia.github.io/griot/#/stories/371)
+# [Performing Dance & Music](http://artstories.artsmia.org/#/stories/371)
 
 <video src='http://cdn.dx.artsmia.org/videos/AfricanGalleries_PerformingDanceAndMusic_iPad.mp4'></video>
 

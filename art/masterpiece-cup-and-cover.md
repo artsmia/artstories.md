@@ -1,4 +1,4 @@
-# [Masterpiece cup and cover](http://artsmia.github.io/griot/#/o/109118)
+# [Masterpiece cup and cover](http://artstories.artsmia.org/#/o/109118)
 ![Masterpiece cup and cover](http://api.artsmia.org/images/109118/large.jpg)
 
 When young Johann Friedrich Baer called this cup of his a “masterpiece,” he wasn’t being boastful. Every craftsman angling for membership in a professional guild had to produce a “master piece” to demonstrate his skill. The guild for metalsmiths required a covered cup, even though they had long been out of style. The panel reviewing Baer’s cup in 1746 declared his work to be excellent (despite a few microscopic holes in the casting) and he was accepted as a Master of the Echasse Guild, just like his father and brother before him and his son after him. Baer kept the cup until he died.

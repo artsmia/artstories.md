@@ -1,4 +1,4 @@
-# [Prayer Mat](http://artsmia.github.io/griot/#/o/45269)
+# [Prayer Mat](http://artstories.artsmia.org/#/o/45269)
 ![Prayer Mat](http://api.artsmia.org/images/45269/medium.jpg)
 
 This is no mere mat. It is a portable mosque. Like a mosque, this mat functions as a sacred space for prayer. A faithful Muslim prays five times a day: at dawn, noon, afternoon, sunset, and evening. Because going to a mosque to pray five times a day is not always possible, prayer mats were designed for the worshipper on the go.  The three spires in the center of the mat are a reference to Islamic architecture, and associate the mat with the mosque.

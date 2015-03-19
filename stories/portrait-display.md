@@ -1,4 +1,4 @@
-# [Portrait Display](http://artsmia.github.io/griot/#/stories/309)
+# [Portrait Display](http://artstories.artsmia.org/#/stories/309)
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_2013_TDXAfrica_061_01.jpg)
 

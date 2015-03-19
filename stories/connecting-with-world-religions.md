@@ -1,4 +1,4 @@
-# [Connecting with World Religions](http://artsmia.github.io/griot/#/stories/373)
+# [Connecting with World Religions](http://artstories.artsmia.org/#/stories/373)
 
 <video src='http://cdn.dx.artsmia.org/videos/AfricanGalleries_ConnectingWithWorldReligions_iPad.mp4'></video>
 

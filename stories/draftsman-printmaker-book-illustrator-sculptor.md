@@ -1,4 +1,4 @@
-# [Draftsman, Printmaker, Book Illustrator, Sculptor](http://artsmia.github.io/griot/#/stories/1144)
+# [Draftsman, Printmaker, Book Illustrator, Sculptor](http://artstories.artsmia.org/#/stories/1144)
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_mia_6003933.jpg)
 ![](http://cdn.dx.artsmia.org/thumbs/tn_mia_6003635.jpg)

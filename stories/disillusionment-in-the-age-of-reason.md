@@ -1,4 +1,4 @@
-# [Disillusionment in the Age of Reason](http://artsmia.github.io/griot/#/stories/1126)
+# [Disillusionment in the Age of Reason](http://artstories.artsmia.org/#/stories/1126)
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_mia_6008087.jpg)
 

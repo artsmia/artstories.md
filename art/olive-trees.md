@@ -1,4 +1,4 @@
-# [Olive Trees](http://artsmia.github.io/griot/#/o/1218)
+# [Olive Trees](http://artstories.artsmia.org/#/o/1218)
 ![Olive Trees](http://api.artsmia.org/images/1218/large.jpg)
 
 He had wandered all his life, from the Netherlands to Belgium to Paris, before settling in the south of France in February 1888. Van Gogh came in search of sun, new light to drive his interest in color, and to establish a community of artists. He invited the painter Paul Gauguin to join this “Studio of the South.” Just two months after Gauguin’s arrival, Van Gogh suffered a breakdown. He sliced off part of his own ear, and a terrified Gauguin promptly left, never to return. By May 1889, little more than a year after arriving in the south, Van Gogh had checked himself into Saint-Paul Asylum in Saint-Rémy, where he spent months studying and painting the asylum’s olive groves.

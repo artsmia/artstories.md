@@ -1,4 +1,4 @@
-# [Vicki! I--I Thought I Heard Your Voice!](http://artsmia.github.io/griot/#/o/2606)
+# [Vicki! I--I Thought I Heard Your Voice!](http://artstories.artsmia.org/#/o/2606)
 ![Vicki! I--I Thought I Heard Your Voice!](http://api.artsmia.org/images/2606/large.jpg)
 
 “Is he the worst artist in America?” *Life* magazine asked this in the title of a 1964 article about Roy Lichtenstein. It’s hard to imagine how shocking his work was in the 1960s—the low-brow subject matter, the dubious artistry involved in basically copying someone else’s work. But Lichtenstein was playing with heady issues that preoccupied generations of artists before him, pinpointing the shifting intersection between abstract form (lines and dots on canvas) and meaning (or lack thereof).

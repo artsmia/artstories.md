@@ -1,4 +1,4 @@
-# [Fantasy Coffins](http://artsmia.github.io/griot/#/stories/328)
+# [Fantasy Coffins](http://artstories.artsmia.org/#/stories/328)
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_2013_TDXAfrica_063_01.jpg)
 

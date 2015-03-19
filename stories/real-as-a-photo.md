@@ -1,4 +1,4 @@
-# [Real as a Photo](http://artsmia.github.io/griot/#/stories/1097)
+# [Real as a Photo](http://artstories.artsmia.org/#/stories/1097)
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_null.jpg)
 ![](http://cdn.dx.artsmia.org/thumbs/tn_null.jpg)

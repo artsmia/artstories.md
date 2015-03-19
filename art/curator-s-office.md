@@ -1,4 +1,4 @@
-# [Curator's Office](http://artsmia.github.io/griot/#/o/116294)
+# [Curator's Office](http://artstories.artsmia.org/#/o/116294)
 ![Curator's Office](http://api.artsmia.org/images/116294/large.jpg)
 
 *Curator’s Office* presents the story of Dr. Barton Kestle, a curator at the MIA during the 1950s who simply disappeared. The door to his office was simply sealed behind a wall in a later museum renovation. Or so a visitor might think. Artist Mark Dion carefully crafted a narrative about an imaginary staff person who may have run afoul of the US government during the height of the Cold War. Kestle’s office provides a window into a bygone era and, perhaps, clues to help solve the mystery of the missing curator. 

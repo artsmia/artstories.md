@@ -1,4 +1,4 @@
-# [The Church at Chailly](http://artsmia.github.io/griot/#/o/1637)
+# [The Church at Chailly](http://artstories.artsmia.org/#/o/1637)
 ![The Church at Chailly](http://api.artsmia.org/images/1637/large.jpg)
 
 He was a master of the middle ground, solidly centering the action in the narrow strip between foreground and horizon. A gifted landscape artist, Jean-François Millet evokes the boundless space of the rural plains where he lived by squeezing into this space a flock of grazing sheep, a lone shepherd, a man driving a farm cart, and a row of thatched-roof houses among the lush green pastures. He began his professional career in Paris, exhibiting controversial large-scale paintings of peasants at the Salons. Later Millet moved his growing family to the small village of Barbizon joining an informal colony of artists drawn to the forest of Fontainebleau and its bucolic surroundings.

@@ -1,4 +1,4 @@
-# [Exile in Amsterdam](http://artsmia.github.io/griot/#/stories/1128)
+# [Exile in Amsterdam](http://artstories.artsmia.org/#/stories/1128)
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_2014_TDX_MIAArtStories_411.jpg)
 

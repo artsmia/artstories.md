@@ -1,4 +1,4 @@
-# [The Dream of the Some/One](http://artsmia.github.io/griot/#/stories/1077)
+# [The Dream of the Some/One](http://artstories.artsmia.org/#/stories/1077)
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_null.jpg)
 

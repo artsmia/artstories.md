@@ -1,4 +1,4 @@
-# [Convulsionists of Tangier](http://artsmia.github.io/griot/#/o/1978)
+# [Convulsionists of Tangier](http://artstories.artsmia.org/#/o/1978)
 ![Convulsionists of Tangier](http://api.artsmia.org/images/1978/large.jpg)
 
 They were entranced, and entrancing: celebrants of the Aissawa sect of Sufi Islam on a ritual pilgrimage through the streets of Tangier, in Morocco. Eugène Delacroix saw them in 1832 while traveling with the French ambassador, the Count de Mornay, who was negotiating a treaty of friendship with the sultan of Morocco. The pilgrims were eating glass and biting their own arms, among other acts of self-abuse, to draw attention to their religion. Vividly colored and vigorously brushed, Delacroix’s masterpiece captured the commotion, even though it was painted from memory five years later—a memory not easily forgotten.

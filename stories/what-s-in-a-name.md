@@ -1,4 +1,4 @@
-# [What's in a Name?](http://artsmia.github.io/griot/#/stories/1075)
+# [What's in a Name?](http://artstories.artsmia.org/#/stories/1075)
 
 <video src='http://cdn.dx.artsmia.org/videos/artstories/TEDxBrooklyn-_Callie_Curry_aka_Swoon.mp4'></video>
 

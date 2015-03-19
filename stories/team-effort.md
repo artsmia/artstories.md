@@ -1,4 +1,4 @@
-# [Team Effort](http://artsmia.github.io/griot/#/stories/340)
+# [Team Effort](http://artstories.artsmia.org/#/stories/340)
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_mia_5034471.jpg)
 

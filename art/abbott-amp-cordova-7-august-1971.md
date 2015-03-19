@@ -1,4 +1,4 @@
-# [Abbott &amp; Cordova, 7 August 1971](http://artsmia.github.io/griot/#/o/115352)
+# [Abbott &amp; Cordova, 7 August 1971](http://artstories.artsmia.org/#/o/115352)
 ![Abbott &amp; Cordova, 7 August 1971](http://api.artsmia.org/images/115352/large.jpg)
 
 Few developers would plaster a monumental image of a riot on new construction meant to revitalize the neighborhood. But that’s exactly what one did in Vancouver, hiring Stan Douglas, one of Canada’s leading artists, to recreate and photograph a 1971 confrontation between police and pro-marijuana demonstrators. The so-called “smoke-in,” at the building’s location of Abbott and Cordova streets, revealed a clash of social values as the historically poor neighborhood began to gentrify with a middle-class influx, represented by the well-dressed onlookers in the photo’s margins. 

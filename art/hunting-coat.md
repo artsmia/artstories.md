@@ -1,4 +1,4 @@
-# [Hunting Coat](http://artsmia.github.io/griot/#/o/114602)
+# [Hunting Coat](http://artstories.artsmia.org/#/o/114602)
 ![Hunting Coat](http://api.artsmia.org/images/114602/large.jpg)
 
 Caribou can’t help being drawn to this coat. It’s made precisely for them—and *of* them. In the 1700s, in the far reaches of Northern Labrador in Canada, Innu (Naskapi) men adorned themselves with elegant, tailored hunting coats like this one. Wearing this coat was all about attraction—not of beautiful women, but Caribou! The lush, creamy white hide was designed to please *Papakassik,* a holy Innu being, and to mesmerize the animal. Lured in by the divine, the Caribou would eventually yield its life to the hunter.

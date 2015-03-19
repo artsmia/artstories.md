@@ -1,4 +1,4 @@
-# [Ga Funerals](http://artsmia.github.io/griot/#/stories/394)
+# [Ga Funerals](http://artstories.artsmia.org/#/stories/394)
 
 <video src='http://cdn.dx.artsmia.org/videos/GhanaCoffinMaker.mp4'></video>
 

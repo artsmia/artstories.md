@@ -1,4 +1,4 @@
-# [The Origin of Orientalism](http://artsmia.github.io/griot/#/stories/1155)
+# [The Origin of Orientalism](http://artstories.artsmia.org/#/stories/1155)
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_2014_TDX_MIAArtStories_271.jpg)
 

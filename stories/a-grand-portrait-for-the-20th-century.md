@@ -1,4 +1,4 @@
-# [A Grand Portrait for the 20th Century](http://artsmia.github.io/griot/#/stories/1194)
+# [A Grand Portrait for the 20th Century](http://artstories.artsmia.org/#/stories/1194)
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_null.jpg)
 

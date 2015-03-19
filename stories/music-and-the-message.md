@@ -1,4 +1,4 @@
-# [Music and the Message](http://artsmia.github.io/griot/#/stories/1721)
+# [Music and the Message](http://artstories.artsmia.org/#/stories/1721)
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_2014_TDX_MIAArtStories_242.jpg)
 

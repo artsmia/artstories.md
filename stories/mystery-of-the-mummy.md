@@ -1,4 +1,4 @@
-# [Mystery of the Mummy](http://artsmia.github.io/griot/#/stories/236)
+# [Mystery of the Mummy](http://artstories.artsmia.org/#/stories/236)
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_mia_2022753.jpg)
 ![](http://cdn.dx.artsmia.org/thumbs/tn_mia_2025112.jpg)

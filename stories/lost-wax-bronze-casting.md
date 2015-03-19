@@ -1,4 +1,4 @@
-# [Lost Wax Bronze Casting](http://artsmia.github.io/griot/#/stories/352)
+# [Lost Wax Bronze Casting](http://artstories.artsmia.org/#/stories/352)
 
 <video src='http://cdn.dx.artsmia.org/videos/lostWaxBronzeCasting.mp4'></video>
 

@@ -1,4 +1,4 @@
-# [Designing Form & Function](http://artsmia.github.io/griot/#/stories/384)
+# [Designing Form & Function](http://artstories.artsmia.org/#/stories/384)
 
 <video src='http://cdn.dx.artsmia.org/videos/AfricanGalleries_DesigningFormFunction_iPad.mp4'></video>
 

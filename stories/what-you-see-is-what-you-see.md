@@ -1,4 +1,4 @@
-# ["What you see is what you see"](http://artsmia.github.io/griot/#/stories/1089)
+# ["What you see is what you see"](http://artstories.artsmia.org/#/stories/1089)
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_null.jpg)
 

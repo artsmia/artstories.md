@@ -1,4 +1,4 @@
-# [Dr. Getatchew Haile on Ethiopian Manuscripts](http://artsmia.github.io/griot/#/stories/256)
+# [Dr. Getatchew Haile on Ethiopian Manuscripts](http://artstories.artsmia.org/#/stories/256)
 
 <video src='http://cdn.dx.artsmia.org/videos/Voices_Getatchew_iPad.mp4'></video>
 

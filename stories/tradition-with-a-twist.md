@@ -1,4 +1,4 @@
-# [Tradition with a Twist](http://artsmia.github.io/griot/#/stories/1122)
+# [Tradition with a Twist](http://artstories.artsmia.org/#/stories/1122)
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_2014_TDX_MIAArtStories_351.jpg)
 

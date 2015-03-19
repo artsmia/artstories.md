@@ -1,4 +1,4 @@
-# [Technical Showcase](http://artsmia.github.io/griot/#/stories/2540)
+# [Technical Showcase](http://artstories.artsmia.org/#/stories/2540)
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_2014_TDX_MIAArtStories_228.jpg)
 
