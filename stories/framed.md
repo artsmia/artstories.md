@@ -8,13 +8,13 @@ Girodet reused the frame from his first portrait of Lange, but replaced the four
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_mia_6008824.jpg)
 
-The medallion on the upper left of the frame has a Latin inscription: *Desinit in esinit piscem muiler formosa superne (*A lovely woman on the top ends in a fish below) and an image of a siren with a mirror: vain, duplicitious seduction.
+The medallion on the upper left of the frame has a Latin inscription: *Desinit in esinit piscem muiler formosa superne (*A lovely woman on the top ends in a fish below) and an image of a siren with a mirror: vain, duplicitous seduction.
 
 ---
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_mia_6008825.jpg)
 
-The medallion on the upper right is inscribed in Latin: *Risum teneatis amici*? (Are you supressing a laugh, friends?) Above the inscription is a strange composite creature: the head of the ostrich refers to the actress's voracity, the tail of the turkey to her stupidity, the bird feet to her swampy origins. The head with the ram horns alludes to Lange's husband, while the other suggests an older man, presumably her father-in-law, who had tried to prevent their marriage due to her reputation. Finally, the squirrel driving the beast symbolized the agility with which the actress dominated both men.
+The medallion on the upper right is inscribed in Latin: *Risum teneatis amici*? (Are you suppressing a laugh, friends?) Above the inscription is a strange composite creature: the head of the ostrich refers to the actress's voracity, the tail of the turkey to her stupidity, the bird feet to her swampy origins. The head with the ram horns alludes to Lange's husband, while the other suggests an older man, presumably her father-in-law, who had tried to prevent their marriage due to her reputation. Finally, the squirrel driving the beast symbolized the agility with which the actress dominated both men.
 
 ---
 

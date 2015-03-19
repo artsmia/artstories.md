@@ -21,11 +21,11 @@ Millet's friend and agent, Alfred Sensier, suggested brighter drawings might app
 
 In this preliminary graphite study, now in the Yale University Art Gallery, Millet left out most of the details that would appear in the middle ground of the final pastel and focused on the general outline of the town.
 
-## Pastel Tycoon
+## St. Paul Tycoon
 
 This pastel was among the last works purchased by James J. Hill, the Minnesota railroad magnate. It arrived in St. Paul in the spring of 1916, along with another Millet pastel, *Watermill at the Foot of a Mountain, Allier*, just weeks before Hill's death on May 29, 1916.
 
 ---
 
-* [Patron of Pastels](../stories/patron-of-pastels.md)
 * [The Empire Builder](../stories/the-empire-builder.md)
+* [Patron of Pastels](../stories/patron-of-pastels.md)

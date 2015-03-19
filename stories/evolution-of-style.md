@@ -6,7 +6,7 @@ Matisse’s palette, painting technique, and artistic style continued to change 
 
 ---
 
-![](http://cdn.dx.artsmia.org/thumbs/tn_null.jpg)
+![](http://cdn.dx.artsmia.org/thumbs/tn_2014_TDX_MIAArtStories_404.jpg)
 
 Two summers spent at the beach were pivotal in Matisse’s career and style. In 1904, Matisse visited fellow artist Paul Signac in the south of France, where the bright light drastically changed Matisse’s palette to one of vivid colors. Signac introduced him to the Pointilist technique of using small dots of complementary colors to create dynamic works.
 
@@ -32,7 +32,7 @@ In 1917, Matisse settled in Nice in the South of France, where he would remain f
 
 ---
 
-![](http://cdn.dx.artsmia.org/thumbs/tn_null.jpg)
+![](http://cdn.dx.artsmia.org/thumbs/tn_2014_TDX_MIAArtStories_419.jpg)
 
 In 1932, Dr. Albert Barnes, the Pennsylvania inventor who made millions off an antiseptic, commissioned Matisse to paint a large mural for his mansion outside of Philadelphia. Matisse chose the subject of the dance, a theme that had preoccupied him since the time of *Three Bathers*, and returned to many of the ideas he had labored over – the female figure, simplicity of form and line, and the “essential character of things.” To prepare for this great undertaking Matisse began using a new technique—that of building up the composition from cutout shapes of previously colored paper.
 

@@ -8,7 +8,7 @@ Soon after Beckmann arrived in America, the City Art Museum of St. Louis (now th
 ---
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_131001_mia334_2025607.jpg)
-![](http://cdn.dx.artsmia.org/thumbs/tn_131001_mia334_2025608.jpg)
+![](http://cdn.dx.artsmia.org/thumbs/tn_131001_mia334_2025604.jpg)
 
 <div>
 

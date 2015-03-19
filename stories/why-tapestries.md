@@ -18,7 +18,7 @@ To produce a high-quality, large-scale tapestry like this one, the expertise of 
 
 ---
 
-![](http://cdn.dx.artsmia.org/thumbs/tn_2014_TDX_MIAArtStories_323.jpg)
+![](http://cdn.dx.artsmia.org/thumbs/tn_2014_TDX_MIAArtStories_423.jpg)
 
 In Europe, two basic kinds of looms were used to create tapestries: the low-warp loom and the high-warp loom. With a high-warp loom, the warp threads were stretched vertically. As the weaver worked, he or she sat upright, face-to-face with the warp threads.
 
@@ -30,7 +30,7 @@ This image shows a weaver at a high-warp loom. In his right hand is a shuttle, a
 
 ---
 
-![](http://cdn.dx.artsmia.org/thumbs/tn_null.jpg)
+![](http://cdn.dx.artsmia.org/thumbs/tn_2014_TDX_MIAArtStories_424.jpg)
 
 In low-warp weaving, the loom was oriented horizontally and the seated weaver looked down on the warp threads. This image shows weavers side-by-side at a low-warp loom. This method had the advantage of a system of pulleys operated by foot pedals that pulled up alternating warp threads. This created spaces between the warps and facilitated the passing of the weft thread, freeing up both hands for weaving, and speeding up production. In this method, large strips of the cartoon were often cut up and inserted directly onto the loom frame, so the weaver looked not at a reflection but directly at the cartoon.
 

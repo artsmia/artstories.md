@@ -13,13 +13,13 @@ Girodet was a student at the Royal Academy of Painting and Sculpture in Paris, t
 
 ---
 
-![](http://cdn.dx.artsmia.org/thumbs/tn_null.jpg)
+![](http://cdn.dx.artsmia.org/thumbs/tn_2014_TDX_MIAArtStories_421.jpg)
 
 Who commissioned Lange’s original portrait? Did she? Did her husband? What’s certain is that Girodet was still an emerging artist. The original, *Portrait of the Citizen Madame Simons, Née Lange*, met with mixed reviews when displayed at the Salon. Lange reportedly asked Girodet to remove the painting within 24 hours, because it did nothing for his reputation or hers. 
 
 ---
 
-![](http://cdn.dx.artsmia.org/thumbs/tn_mia_47846a.jpg)
+![](http://cdn.dx.artsmia.org/thumbs/tn_2014_TDX_MIAArtStories_422.jpg)
 
 Girodet did remove the painting—and sliced it into four pieces and had it delivered to Lange while she was hosting a party. Over the next two weeks, he created his new portrait of Lange as Danaë and installed it the same spot at the Salon. All of Paris drank in the drama.
 
