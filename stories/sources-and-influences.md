@@ -12,14 +12,14 @@ Bacon’s fondness for multiple portraits was undoubtedly inspired by photograph
 
 ---
 
-![](http://cdn.dx.artsmia.org/thumbs/tn_null.jpg)
+![](http://cdn.dx.artsmia.org/thumbs/tn_2014_TDX_MIAArtStories_420.jpg)
 
 The pope’s screaming mouth, shattered pince-nez glasses, and bloodied eye were inspired by the image of a nursemaid, shot through the eye during a civilian massacre, from Sergei Eisenstein’s classic 1925 film Battleship Potemkin. Bacon always kept a photograph of the image, a compelling metaphor for a world turned upside down by war, in his successive studios.
 
 ---
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_2014_TDX_MIAArtStories_354.jpg)
-![](http://cdn.dx.artsmia.org/thumbs/tn_null.jpg)
+![](http://cdn.dx.artsmia.org/thumbs/tn_2014_TDX_MIAArtStories_401.jpg)
 
 Bacon was also inspired by Titian’s Portrait of Filippo Archinto, in which a mysterious veil or curtain obscures half of the painting, blurring the subject. Bacon duplicates this smeared appearance, extending the curtain across the entire painting. His explanation: “I wanted to paint a head as if folded in on itself, like the folds of a curtain.”
 

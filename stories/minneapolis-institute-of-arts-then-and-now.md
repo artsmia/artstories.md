@@ -3,7 +3,7 @@
 ![](http://cdn.dx.artsmia.org/thumbs/tn_2014_TDX_MIAArtStories_310.jpg)
 ![](http://cdn.dx.artsmia.org/thumbs/tn_060811_mia153_003.jpg)
 
-From paper to plaster to stone, the MIA’s construction was brought together many visions and voices. With McKim, Mead, and White’s architectural plans in place, Clinton Morrison, one of the Society’s founding members, donated his family estate, Villa Rosa, as the site for the museum.  
+From paper to plaster to stone, the MIA’s construction brought together many visions and voices. Clinton Morrison, one of the Society’s founding members, promised his family estate, Villa Rosa, as the site for the museum society driectors secured funding, and sponsored an archirctural competition.  
 
 ---
 
@@ -35,7 +35,7 @@ Constructed from 1972 to 1974, Kenzo Tange’s two large modern wings were the f
 ---
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_060820_mia153_005.jpg)
-![](http://cdn.dx.artsmia.org/thumbs/tn_null.jpg)
+![](http://cdn.dx.artsmia.org/thumbs/tn_060820_mia153_002.jpg)
 
 On June 11, 2006, the Target Wing, designed by Michael Graves, opened to the public. Though it is located alongside Tange’s west wing, the addition takes its architectural design cues from the exterior of the original McKim, Mead, and White building. 
 

@@ -39,3 +39,4 @@ Not everything carved into the desk was a tool. Take these trade symbols, displa
 
 * [The Raw Deal of Sharecropping](../stories/the-raw-deal-of-sharecropping.md)
 * [Life at Kirkwood Plantation](../stories/life-at-kirkwood-plantation.md)
+* [Neoclassicism: The Allure of the Classical Past](../stories/neoclassicism-the-allure-of-the-classical-past.md)

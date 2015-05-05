@@ -32,3 +32,4 @@ Ganymede is feeding the eagle ambrosia, the “food of the gods” in ancient Gr
 ---
 
 * [Myths in Marble](../stories/myths-in-marble.md)
+* [Neoclassicism: The Allure of the Classical Past](../stories/neoclassicism-the-allure-of-the-classical-past.md)

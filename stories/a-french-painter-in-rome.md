@@ -10,7 +10,7 @@ Poussin is known as one of the greatest French painters of all time, but he live
 
 In 1627, Poussin had the opportunity to work for Cardinal Barberini. The result of that commission was the painting we see here. The rest is history: just three years before, Poussin had arrived in Rome virtually an unknown artist. The success of his painting, “The Death of Germanicus,” cemented his reputation in the city.
 
-The painting remained in the possession of Cardinal Barberini’s family until 1958, the year it was purchased by the MIA.
+The painting remained in the possession of descendants of Cardinal Barberini until 1958, the year it was purchased by the MIA.
 
 ---
 

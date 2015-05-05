@@ -25,3 +25,4 @@ Poussin’s grieving soldiers act out their emotions with their hands, arms, and
 
 * [A French Painter in Rome](../stories/a-french-painter-in-rome.md)
 * [Orderly Passion](../stories/orderly-passion.md)
+* [Neoclassicism: The Allure of the Classical Past](../stories/neoclassicism-the-allure-of-the-classical-past.md)

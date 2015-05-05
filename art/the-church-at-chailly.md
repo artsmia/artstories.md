@@ -29,3 +29,4 @@ This pastel was among the last works purchased by James J. Hill, the Minnesota r
 
 * [The Empire Builder](../stories/the-empire-builder.md)
 * [Patron of Pastels](../stories/patron-of-pastels.md)
+* [The Church at Chailly](../stories/the-church-at-chailly.md)

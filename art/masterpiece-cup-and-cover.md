@@ -11,15 +11,15 @@ On the cover, the mythological hero Hercules slays the three-headed monster Cerb
 
 ## In Touch with Nature
 
-Pan, the Greek half-goat/half-human god of wild places, perches on the stem of the cup eating grapes in a bower of bulrushes, acanthus leaves, and grape vines. Such florid images from nature were popular during the brief period of Rococo style.
+Pan, the Greek half-goat/half-human god of wild places, perches on the stem of the cup eating grapes in a bower of bulrushes, acanthus leaves, and grape vines. Such florid images from nature were popular during the period of Rococo style.
 
 ## The Customer is Always Right
 
-Baer’s cup was a terrific advertisement, illustrating just about every type of scene a potential patron could have wanted, from ancient mythology to recent battles. At the time, Europe was embroiled in a war to settle whether Maria Theresa, the daughter of Holy Roman Emperor Charles VI, would become the first and only female ruler of the Habsburg Empire.
+Baer’s cup was a terrific advertisement, illustrating just about every type of scene a potential patron could have wanted, from ancient mythology to recent battles. At the time, Europe was embroiled in a war to settle whether Maria Theresa, the daughter of Holy Roman Emperor Charles VI, would stay the first and only female ruler of the Habsburg Empire.
 
 ## Good Enough for Paris
 
-The inscription at the base of the cup was added later, when the cup was displayed in Paris. But it was wrong: “Johann Friedrich Baer invented and made it, in Strasbourg, in the year 1756,” it declared in French. The actual date was 1746.
+The inscription at the base of the cup was added later, when the cup was displayed in Paris. But there was a slip of the chisel when the inscription was added later, and the date is given as "1756" instead of "1746"; also Baer's name is written "Bäer" here with the umlaut.
 
 ## Show and Tell
 

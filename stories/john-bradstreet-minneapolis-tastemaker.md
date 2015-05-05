@@ -7,6 +7,7 @@ John Bradstreet was a trendsetting designer in Minnesota, bringing the hottest s
 ---
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_141212_mia329_5043291.jpg)
+![](http://cdn.dx.artsmia.org/thumbs/tn_2014_TDX_MIAArtStories_435.jpg)
 
 Bradstreet so loved Japan that he designed a Japanese garden for the Craftshouse grounds, including a Japanese bridge from the 1904 St. Louis World’s Fair. His idea to bankroll a Japanese garden on an island in Minneapolis’s Lake of the Isles was never realized, presumably because it didn’t mesh with the naturalistic approach of parks superintendent Theodore Wirth.
 

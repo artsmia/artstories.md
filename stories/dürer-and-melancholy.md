@@ -29,4 +29,6 @@ Image from the History of Medicine (NLM). Licensed under [Public Domain] via W
 
 *Melencolia I* may be Dürer’s psychological self-portrait. The large, wide-eyed angel is saddened by its ability to envision ideal forms, knowing they are unrealizable in the physical world. Even the physical realization of Dürer’s ideal geometric solid is chipped and weathered. Meanwhile, the shut-eyed *putto*, a less ambitious artist, can freely scribble away.
 
+Image on left: Erlangen, Graphic Collection of the University (B 155v)
+
 ---

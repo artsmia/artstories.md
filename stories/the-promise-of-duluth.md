@@ -1,6 +1,7 @@
 # [The Promise of Duluth](http://artstories.artsmia.org/#/stories/1891)
 
-![](http://cdn.dx.artsmia.org/thumbs/tn_null.jpg)
+![](http://cdn.dx.artsmia.org/thumbs/tn_2014_TDX_MIAArtStories_435.jpg)
+![](http://cdn.dx.artsmia.org/thumbs/tn_2014_TDX_MIAArtStories_144.jpg)
 
 Duluth as Chicago? It was a timber boomtown in the 1880s and 1890s, and the William Prindle Company was encouraging real estate investment by Easterners. Investors were convinced it would be the next Great Lakes metropolis when rail cargo from the Pacific was shipped from its Lake Superior port.
 

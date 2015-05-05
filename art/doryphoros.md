@@ -29,3 +29,4 @@ Alas, Polykleitos’ proportions are nearly unattainable unless you’ve won the
 
 * [Perfection vs. Poetry](../stories/perfection-vs-poetry.md)
 * [The Measure of Man: Average Trumps Ideal](../stories/the-measure-of-man-average-trumps-ideal.md)
+* [Neoclassicism: The Allure of the Classical Past](../stories/neoclassicism-the-allure-of-the-classical-past.md)
