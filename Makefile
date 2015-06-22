@@ -3,7 +3,7 @@ SHELL := bash
 default: art stories
 
 artstories.json:
-	curl new.artsmia.org/crashpad/griot > $@
+	curl new.artsmia.org/crashpad/griot/ > $@
 
 art: artstories.json
 	@rm -rf art
