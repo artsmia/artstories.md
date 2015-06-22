@@ -3,7 +3,7 @@
 ![](http://cdn.dx.artsmia.org/thumbs/tn_2014_TDX_MIAArtStories_310.jpg)
 ![](http://cdn.dx.artsmia.org/thumbs/tn_060811_mia153_003.jpg)
 
-From paper to plaster to stone, the MIA’s construction brought together many visions and voices. Clinton Morrison, one of the Society’s founding members, promised his family estate, Villa Rosa, as the site for the museum society driectors secured funding, and sponsored an archirctural competition.  
+From paper to plaster to stone, the MIA’s construction brought together many visions and voices. Clinton Morrison, one of the Society’s founding members, promised his family estate, Villa Rosa, as the site for the museum society directors secured funding, and sponsored an archirctural competition.  
 
 ---
 

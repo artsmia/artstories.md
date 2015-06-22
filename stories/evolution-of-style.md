@@ -8,7 +8,7 @@ Matisse’s palette, painting technique, and artistic style continued to change 
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_2014_TDX_MIAArtStories_404.jpg)
 
-Two summers spent at the beach were pivotal in Matisse’s career and style. In 1904, Matisse visited fellow artist Paul Signac in the south of France, where the bright light drastically changed Matisse’s palette to one of vivid colors. Signac introduced him to the Pointilist technique of using small dots of complementary colors to create dynamic works.
+Two summers spent at the beach were pivotal in Matisse’s career and style. In 1904, Matisse visited fellow artist Paul Signac in the south of France, where the bright light drastically changed Matisse’s palette to one of vivid colors. Signac introduced him to the Pointillist technique of using small dots of complementary colors to create dynamic works.
 
 The following summer, working together in the small fishing port of Collioure (where he painted *Three Bathers* two years later), Matisse and painter André Derain introduced unnaturalistic color and vivid brushstrokes into their paintings. When their pictures were exhibited later that year in Paris, a witty critic called the works *fauves*, or "wild beasts" in his review, because the works were so striking compared with traditional French art of the time. The term stuck, and was later applied to the artists themselves.
 

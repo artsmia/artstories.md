@@ -18,7 +18,7 @@ The pope appears guarded in the third portrait.
 
 ---
 
-![](http://cdn.dx.artsmia.org/thumbs/tn_null.jpg)
+![](http://cdn.dx.artsmia.org/thumbs/tn_2014_TDX_MIAArtStories_440.jpg)
 
 In the fourth image, he brings his hand to his face. Is he sneezing? Stifling a laugh? Hiding his expression?
 

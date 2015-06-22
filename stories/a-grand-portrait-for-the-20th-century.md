@@ -1,6 +1,6 @@
 # [A Grand Portrait for the 20th Century](http://artstories.artsmia.org/#/stories/1194)
 
-![](http://cdn.dx.artsmia.org/thumbs/tn_null.jpg)
+![](http://cdn.dx.artsmia.org/thumbs/tn_2014_TDX_MIAArtStories_442.jpg)
 
 In 1953, Bacon’s artistic vision and technical ability brilliantly merged. He began the *Study after Velázquez’s Portrait of Pope Innocent X* that February and revisited it later that summer when he produced the eight paintings of *Study for Portrait I-VIII* in two weeks. Bacon worked feverishly, with great spontaneity and confidence, and the sustained, almost cinematic progression is his most successful attempt to meld and reconcile the grandeur of traditional painting with the time-based media of the 20th century, specifically photography and film.
 
@@ -15,7 +15,7 @@ One could hardly conceive of a more devastating depiction of post-WWII angst. Ba
 
 ---
 
-![](http://cdn.dx.artsmia.org/thumbs/tn_null.jpg)
+![](http://cdn.dx.artsmia.org/thumbs/tn_2014_TDX_MIAArtStories_428.jpg)
 
 Bacon drew inspiration from an extensive collection of clippings, photographs, and reproductions of old masterworks. He significantly transformed these visual references into his own horrific visions by isolating, distorting, and fragmenting a motif against a mysterious, empty background. Because Bacon worked from secondary sources and not from life, his works often have the frozen quality of a photograph.
 
