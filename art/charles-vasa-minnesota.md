@@ -7,7 +7,7 @@ He looks like a Charles. He has the sophistication, wearing college-professor gl
 
 ## Art World Star
 
-Alec Soth once labored in the MIA’s darkroom. Now the museum owns his artwork. This photo was displayed at the 2004 Whitney Biennial and in the advertising for the show. A *New York Times* reviewer singled out Soth as a “discovery.” The rest is history.
+Alec Soth once labored in Mia’s darkroom. Now the museum owns his artwork. This photo was displayed at the 2004 Whitney Biennial and in the advertising for the show. A *New York Times* reviewer singled out Soth as a “discovery.” The rest is history.
 
 ## Where’s the Mississippi?
 

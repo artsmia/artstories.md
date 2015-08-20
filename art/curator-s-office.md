@@ -1,7 +1,7 @@
 # [Curator's Office](http://artstories.artsmia.org/#/o/116294)
 ![Curator's Office](http://api.artsmia.org/images/116294/large.jpg)
 
-*Curator’s Office* presents the story of Dr. Barton Kestle, a curator at the MIA during the 1950s who simply disappeared. The door to his office was simply sealed behind a wall in a later museum renovation. Or so a visitor might think. Artist Mark Dion carefully crafted a narrative about an imaginary staff person who may have run afoul of the US government during the height of the Cold War. Kestle’s office provides a window into a bygone era and, perhaps, clues to help solve the mystery of the missing curator. 
+*Curator’s Office* presents the story of Dr. Barton Kestle, a curator at Mia during the 1950s who simply disappeared. The door to his office was simply sealed behind a wall in a later museum renovation. Or so a visitor might think. Artist Mark Dion carefully crafted a narrative about an imaginary staff person who may have run afoul of the US government during the height of the Cold War. Kestle’s office provides a window into a bygone era and, perhaps, clues to help solve the mystery of the missing curator. 
 
 ---
 
@@ -27,7 +27,7 @@ The forgotten luggage and muddied boots suggests the eerie vestiges of a trip n
 
 ## History of a Professional
 
-Kestle’s art station, arrayed with materials for wrapping and shipping artwork, recalls a time in the museum’s history when curators were responsible for a much wider range of tasks. Now the MIA has a whole department that packs and ships artworks.
+Kestle’s art station, arrayed with materials for wrapping and shipping artwork, recalls a time in the museum’s history when curators were responsible for a much wider range of tasks. Now Mia has a whole department that packs and ships artworks.
 
 ## Smoke-Free?
 

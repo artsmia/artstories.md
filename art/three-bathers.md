@@ -19,7 +19,7 @@ The three women may seem awkwardly posed, but the different body language of eac
 
 ## Starting Small
 
-The MIA’s Three Bathers was likely a study for *Bathers with a Turtle*, a similar but much larger painting at the St. Louis Art Museum. With these paintings, Matisse began a period of artistic experimentation that culminated with his monumental painting known as *Dance (I)* at the Museum of Modern Art.
+Mia’s Three Bathers was likely a study for *Bathers with a Turtle*, a similar but much larger painting at the St. Louis Art Museum. With these paintings, Matisse began a period of artistic experimentation that culminated with his monumental painting known as *Dance (I)* at the Museum of Modern Art.
 
 ## Day at the Beach
 

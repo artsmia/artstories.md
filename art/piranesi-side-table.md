@@ -23,7 +23,7 @@ You wouldn’t eat at this table, or play cards, or much of anything really. You
 
 ## The Battle for Conservation
 
-Even with an extra leg, the table struggled to support its original marble top. Also, the gilding was prone to flaking off; new gold leaf was applied three different times. The MIA restored the table and added wall-mounted supports to prop it up.
+Even with an extra leg, the table struggled to support its original marble top. Also, the gilding was prone to flaking off; new gold leaf was applied three different times. Mia restored the table and added wall-mounted supports to prop it up.
 
 ---
 

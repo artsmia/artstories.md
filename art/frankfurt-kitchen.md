@@ -15,7 +15,7 @@ As calming as the blue hue is, the paint was chosen for a specific purpose. Rese
 
 ## Everything at hand
 
-Aluminum containers held common cooking and baking ingredients for convenience and easy pouring. From top left to bottom right, the bins are labeled for: Coffee, salt, semolina, dried fruit, rice, oats, baking ingredients, fine sugar, noodles, barley and sugar.
+Aluminum containers held common cooking and baking ingredients for convenience and easy pouring. From top left to bottom right, the bins are labeled for: coffee, salt, semolina, dried fruit, rice, oats, baking ingredients, fine sugar, noodles, barley and sugar.
 
 ## Ironing board
 
@@ -27,7 +27,7 @@ The majority of food preparation took place at the counter under the window. The
 
 ## Putting Food on the Table
 
-The pass-through connecting the kitchen and dining area allowed for a quick transition from cooking to placing the food on the table and eating. Some Frankfurt kitchens featured full doors, while others, like the MIA’s, included a small door that slid up into the wall.
+The pass-through connecting the kitchen and dining area allowed for a quick transition from cooking to placing the food on the table and eating. Some Frankfurt kitchens featured full doors, while others, like Mia’s, included a small door that slid up into the wall.
 
 ## Drying rack
 

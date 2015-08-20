@@ -1,7 +1,7 @@
 # [Shiva Nataraja (Lord of the Dance)](http://artstories.artsmia.org/#/o/376)
 ![Shiva Nataraja (Lord of the Dance)](http://api.artsmia.org/images/376/large.jpg)
 
-He dances wildly, his left leg lifting in a powerful, graceful gesture and his arms swaying elegantly across his body. This is the god Shiva in his Nataraja form, the embodiment of his supreme powers. The sculpture is the MIA’s first donated work of Indian art and one of the cornerstones of the collection. Ancient texts speak of Shiva’s dance, *ananda tandava* (literally translated as “furious bliss”), as wreaking havoc and destruction—sending false prophets scampering and humiliating rival gods and goddesses. 
+He dances wildly, his left leg lifting in a powerful, graceful gesture and his arms swaying elegantly across his body. This is the god Shiva in his Nataraja form, the embodiment of his supreme powers. The sculpture is Mia’s first donated work of Indian art and one of the cornerstones of the collection. Ancient texts speak of Shiva’s dance, *ananda tandava* (literally translated as “furious bliss”), as wreaking havoc and destruction—sending false prophets scampering and humiliating rival gods and goddesses. 
 
 ---
 

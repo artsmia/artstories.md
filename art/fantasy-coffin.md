@@ -15,7 +15,7 @@ When it comes to the funerals of loved ones, Ga families spare no expense. The c
 
 ## Artist's signature
 
-The Ga coffin craze began in the 1950s, when Kane Kwei started making quirky coffins in his workshop in Accra, Ghana: eagles, chili peppers, beer cans, bananas, pianos, and cars. Sowah Kwei followed in his father’s footsteps, making this coffin in 1993. Coffin shapes are personalized for their eternal occupants, and a lobster would be an appropriate choice for, say, a fisherman. Coffin makers began making two identical coffins, one for local burial and one for the national and especially international art market. The MIA’s coffin is of the latter sort.
+The Ga coffin craze began in the 1950s, when Kane Kwei started making quirky coffins in his workshop in Accra, Ghana: eagles, chili peppers, beer cans, bananas, pianos, and cars. Sowah Kwei followed in his father’s footsteps, making this coffin in 1993. Coffin shapes are personalized for their eternal occupants, and a lobster would be an appropriate choice for, say, a fisherman. Coffin makers began making two identical coffins, one for local burial and one for the national and especially international art market. Mia’s coffin is of the latter sort.
 
 ---
 

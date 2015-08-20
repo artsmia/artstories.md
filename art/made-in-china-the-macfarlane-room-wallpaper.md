@@ -3,7 +3,7 @@
 
 It was a very good year. Another was likely ahead. To celebrate, a Chinese noble family hosts an elaborate New Year festival in its garden. They light lanterns, stage a parade, and put on a show recounting the marvels of immortals and other legends. Who wouldn’t want this exotic scene of wealth and beauty decorating their home, literally surrounding the family as though they themselves were in the garden, toasting their good fortune?
 
-The wallpaper was hand-painted in China in the late 1700s or early 1800s, and exported for display in rooms like this one represents, a parlor in the home of a wealthy New England merchant. The wallpaper was donated to the MIA by Mabel and Wayne H. MacFarlane, and usually recedes into the background, behind furniture also given by the MacFarlane family and set up in this room in the 1970s. The furniture has been removed to highlight the story playing out on the walls.
+The wallpaper was hand-painted in China in the late 1700s or early 1800s, and exported for display in rooms like this one represents, a parlor in the home of a wealthy New England merchant. The wallpaper was donated to Mia by Mabel and Wayne H. MacFarlane, and usually recedes into the background, behind furniture also given by the MacFarlane family and set up in this room in the 1970s. The furniture has been removed to highlight the story playing out on the walls.
 
  
 

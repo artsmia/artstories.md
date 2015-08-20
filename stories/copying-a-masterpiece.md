@@ -2,7 +2,7 @@
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_130911_mia328_4132.jpg)
 
-For 10 days in 2014, scholars and photographers hunkered down in the MIA to produce ultra-high-resolution images of Rice Farming in the Four Seasons. They were part of the Tsuzuri Project, formed In 2007 by the Kyoto Culture Association and Canon Inc. to preserve Japan’s cultural heritage. Tsurzuri teams have created 27 facsimiles of the nation’s cultural assets owned outside Japan, like this remarkable set of 400-year-old sliding doors. They left the MIA with the digital data needed to create a cloned set and install them in the temple from which the originals came. 
+For 10 days in 2014, scholars and photographers hunkered down in Mia to produce ultra-high-resolution images of Rice Farming in the Four Seasons. They were part of the Tsuzuri Project, formed In 2007 by the Kyoto Culture Association and Canon Inc. to preserve Japan’s cultural heritage. Tsurzuri teams have created 27 facsimiles of the nation’s cultural assets owned outside Japan, like this remarkable set of 400-year-old sliding doors. They left Mia with the digital data needed to create a cloned set and install them in the temple from which the originals came. 
 
 ---
 

@@ -34,7 +34,7 @@ A similar suite of painted Chinese wallpaper adorns the parlor of Winterthur, a 
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_mia_6022080.jpg)
 
-Unlike most wallpaper, glued on and destined to be destroyed, expensive Chinese wallpaper was hung on special wooden slats and coarse cloth, so it could be removed. The MIA’s paper has a linen backing, visible in the blank area to the right of the fireplace.
+Unlike most wallpaper, glued on and destined to be destroyed, expensive Chinese wallpaper was hung on special wooden slats and coarse cloth, so it could be removed. Mia’s paper has a linen backing, visible in the blank area to the right of the fireplace.
 
 ---
 

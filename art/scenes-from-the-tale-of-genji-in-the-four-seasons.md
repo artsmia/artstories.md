@@ -9,7 +9,7 @@
 
 ## The Tale of Genji
 
-This screen contains scenes from the life and times of Genji, the son of an emperor who is passed over for the throne in favor of his older half-brother and is forced to live as a commoner.  As is usually the case, Genji is the handsome and talented one and his imperial relatives both admire and fear him.  The novel is divided into three sections the first chronicling the loves and losses of his youth including his love affair with his stepmother, the second his eventual return and reinstatement at court, and the third about his son and grandson.  The MIA’s screens depict scenes from all three.
+This screen contains scenes from the life and times of Genji, the son of an emperor who is passed over for the throne in favor of his older half-brother and is forced to live as a commoner.  As is usually the case, Genji is the handsome and talented one and his imperial relatives both admire and fear him.  The novel is divided into three sections: the first chronicling the loves and losses of his youth including his love affair with his stepmother, the second his eventual return and reinstatement at court, and the third about his son and grandson.  Mia’s screens depict scenes from all three.
 
 ## Chapter 6: Safflower (Suetsumu hana)
 

@@ -2,7 +2,7 @@
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_130130_mia327_002.jpg)
 
-Norah Labiner is the author, most recently, of *Let the Dark Flower Blossom*, a literary murder mystery about writers who do monstrous things, published by Coffee House Press in 2013. She responded to *Curator’s Office* with the following fictional account. Art Inspires is an MIA initiative to connect the museum with local writers. 
+Norah Labiner is the author, most recently, of *Let the Dark Flower Blossom*, a literary murder mystery about writers who do monstrous things, published by Coffee House Press in 2013. She responded to *Curator’s Office* with the following fictional account. Art Inspires is a Mia initiative to connect the museum with local writers. 
 
 ---
 

@@ -11,7 +11,7 @@ The muffin-shaped grainstack is a symbol of fertility and prosperity in France. 
 
 ## Sun in the Mist
 
-Monet studied how landscapes changed with the weather: a dusting of snow, overcast skies, or sunshine leading to thaw. The MIA’s *Grainstack* was his sole meditation on mist.
+Monet studied how landscapes changed with the weather: a dusting of snow, overcast skies, or sunshine leading to thaw. Mia’s *Grainstack* was his sole meditation on mist.
 
 ## Strokes like Stalks
 

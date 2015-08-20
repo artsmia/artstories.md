@@ -14,7 +14,7 @@ Serious excavations began at Herculaneum in 1738 and at nearby Pompeii in 1748, 
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_mia_4000977.jpg)
 
-Imitation has been the sincerest form of flattery since ancient times, of course. Many classical Greek sculptures, like the *Doryphoros* (Spear-Bearer) of Polykleitos, are known only through the copies made by ancient Roman artists. Molds taken from Greek sculptures were shipped to workshops throughout the Roman Empire, where artists would reproduce them in marble or bronze to meet an enormous public demand.  Multiple copies of the *Doryphorous* were excavated at Pompeii and Herculaneum. The MIA’s copy was found in waters off the Italian coast.
+Imitation has been the sincerest form of flattery since ancient times, of course. Many classical Greek sculptures, like the *Doryphoros* (Spear-Bearer) of Polykleitos, are known only through the copies made by ancient Roman artists. Molds taken from Greek sculptures were shipped to workshops throughout the Roman Empire, where artists would reproduce them in marble or bronze to meet an enormous public demand.  Multiple copies of the *Doryphorous* were excavated at Pompeii and Herculaneum. Mia’s copy was found in waters off the Italian coast.
 
 ---
 
@@ -40,6 +40,6 @@ Neoclassicism had special significance in the young United States, born of revol
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_PCD20030620_4807_IMG0023.jpg)
 
-For American nation-builders, emulating the classical past was nothing short of a recipe for building a great civilization. The neoclassical style was the obvious choice when Minneapolis’ founding families sought to create a temple to the arts in 1915. The Minneapolis Institute of Arts is the result.
+For American nation-builders, emulating the classical past was nothing short of a recipe for building a great civilization. The neoclassical style was the obvious choice when Minneapolis’ founding families sought to create a temple to the arts in 1915. The Minneapolis Institute of Art is the result.
 
 ---
