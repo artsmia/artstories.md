@@ -2,7 +2,7 @@
 
 <video src='http://cdn.dx.artsmia.org/videos/artstories/Meet_the_Tatra_T87.mp4'></video>
 
-In this first video of a three-part series, former MIA Curator of Design David Ryan introduces the Tatra and explains how its aerodynamic design fascinated and appealed to consumers. 
+In this first video of a three-part series, former Mia Curator of Design David Ryan introduces the Tatra and explains how its aerodynamic design fascinated and appealed to consumers. 
 
 ---
 
@@ -20,7 +20,7 @@ In the second video, Ryan points out the exterior features that make the Tatra a
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_mia_49908a.jpg)
 
-The MIA’s Tatra was bought in Brussels, Belgium, in 1948, and exported to Canada in the 1950s. With Czechoslovakia, where the car was made, under Soviet rule, parts were hard to come by. A Canadian collector purchased the Tatra in 1991 and rebuilt the engine, restored and repainted the body and dashboard, and restored the original leather seats.
+Mia’s Tatra was bought in Brussels, Belgium, in 1948, and exported to Canada in the 1950s. With Czechoslovakia, where the car was made, under Soviet rule, parts were hard to come by. A Canadian collector purchased the Tatra in 1991 and rebuilt the engine, restored and repainted the body and dashboard, and restored the original leather seats.
 
 ---
 

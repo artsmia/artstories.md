@@ -12,7 +12,7 @@ Soon after Beckmann arrived in America, the City Art Museum of St. Louis (now th
 
 <div>
 
-After the MIA acquired "Blind Man's Buff," museum director Richard Davis contacted Mathilde (Quappi) Beckmann for more information about the painting.\
+After Mia acquired "Blind Man's Buff," museum director Richard Davis contacted Mathilde (Quappi) Beckmann for more information about the painting.\
  
 
 </div>

@@ -29,12 +29,12 @@ Sensing a business opportunity, German perfumer Dralle developed “Mami Water�
 ![](http://cdn.dx.artsmia.org/thumbs/tn_2013_TDXAfrica_012_01.jpg)
 ![](http://cdn.dx.artsmia.org/thumbs/tn_mia_6004485.jpg)
 
-During the 1950s, several Ghana-based merchants also sensed money to be made, and sent the original German poster of Malamatjaute to the Shree Ram Calendar Company in India, which copied it for sale in Africa. The costume of the MIA’s Mami Wata figure is copied almost directly from the poster, suggesting the artist had a poster on hand.
+During the 1950s, several Ghana-based merchants also sensed money to be made, and sent the original German poster of Malamatjaute to the Shree Ram Calendar Company in India, which copied it for sale in Africa. The costume of Mia’s Mami Wata figure is copied almost directly from the poster, suggesting the artist had a poster on hand.
 
 ---
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_2013_TDXAfrica_077_01.jpg)
 
-And the MIA figure has at least one sister, made by the same carver in 1953. A 1999 photo shows a man holding a Mami Wata wearing identical shoes and a very similar bodice. But wait a minute, doesn’t she look like Queen Elizabeth II, “Mother of the British Empire”?
+And Mia figure has at least one sister, made by the same carver in 1953. A 1999 photo shows a man holding a Mami Wata wearing identical shoes and a very similar bodice. But wait a minute, doesn’t she look like Queen Elizabeth II, “Mother of the British Empire”?
 
 ---

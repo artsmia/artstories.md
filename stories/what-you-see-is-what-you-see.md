@@ -14,6 +14,6 @@ In this 1972 video, Museum of Modern Art Curator William Rubin introduces the w
 
 <video src='http://cdn.dx.artsmia.org/videos/artstories/Museum_in_Motion-_Hanging_Tahkt-I-Sulayman_Variation_II.mp4'></video>
 
-Watch as the MIA registration crew installs “Tahkt-I-Sulayman Variation II”.
+Watch as Mia registration crew installs “Tahkt-I-Sulayman Variation II”.
 
 ---

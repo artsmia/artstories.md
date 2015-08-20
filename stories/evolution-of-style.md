@@ -16,7 +16,7 @@ The following summer, working together in the small fishing port of Collioure (w
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_mia_5018814.jpg)
 
-Just a few years after helping launch the Fauvist movement, Matisse’s works were noticeably more subdued and ordered. This change began slowly in 1907, the year of *Three Bathers* or *Boy with a Butterfly Net*, both here at the MIA. The artist intentionally started to reduce the elements in his paintings, down to the most basic line, form, and color, often without any background and setting. His goal was to get to the “essential character of things.”
+Just a few years after helping launch the Fauvist movement, Matisse’s works were noticeably more subdued and ordered. This change began slowly in 1907, the year of *Three Bathers* or *Boy with a Butterfly Net*, both here at Mia. The artist intentionally started to reduce the elements in his paintings, down to the most basic line, form, and color, often without any background and setting. His goal was to get to the “essential character of things.”
 
 ---
 

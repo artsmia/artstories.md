@@ -10,7 +10,7 @@ The architectural form of a South Indian temple is meticulously reproduced on th
 
 Flowers, birds, and elegantly sculpted gods appear on the rudrakshamala necklace just as they do on Indian temples. Temples as blooming trees or flowers is a common metaphor, with the entire exterior of some stone temples carved with blooming flowers and flowing ornament. Literary tropes refer to beautiful women touching temples and making them bloom, a metaphor for fecundity. Even the organization of a Hindu temple, from its dark and plain interior to its blossoming exterior, suggests it sprung from the “seed” (the divine presence) contained inside.  
 
-A stone lintel arch from the MIA’s collection illustrates this point.  Vishnu is depicted seven times amidst blossoming temple architecture, auspicious women and attendants, leaving no surface unornamented. It is almost as if he has emerged out of the stone.
+A stone lintel arch from Mia’s collection illustrates this point.  Vishnu is depicted seven times amidst blossoming temple architecture, auspicious women and attendants, leaving no surface unornamented. It is almost as if he has emerged out of the stone.
 
 ---
 

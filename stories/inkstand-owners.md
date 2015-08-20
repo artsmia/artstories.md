@@ -22,6 +22,6 @@ Rome was once famous for its silverwork but few pieces remain—many were melted
 ![](http://cdn.dx.artsmia.org/thumbs/tn_2014_TDX_MIAArtStories_150.jpg)
 ![](http://cdn.dx.artsmia.org/thumbs/tn_mia_5005067_001.jpg)
 
-Eventually, in 1930, the Italian senate gifted Coaci’s work to Umberto II, the Prince of Piedmont, who became the last king of Italy. The MIA acquired the work in 1969.
+Eventually, in 1930, the Italian senate gifted Coaci’s work to Umberto II, the Prince of Piedmont, who became the last king of Italy. Mia acquired the work in 1969.
 
 ---

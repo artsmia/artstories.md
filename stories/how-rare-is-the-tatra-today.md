@@ -8,7 +8,7 @@ Tatras are mostly displayed in automotive or technology museums. In the U.S., so
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_mia_49962a.jpg)
 
-Very few art museums have Tatras, though their popularity has increased over the past few decades. Current research shows only two art museums with Tatra T87s in their permanent collection: the Pinakothek der Moderne in Munich and, of course, the MIA.
+Very few art museums have Tatras, though their popularity has increased over the past few decades. Current research shows only two art museums with Tatra T87s in their permanent collection: the Pinakothek der Moderne in Munich and, of course, Mia.
 
 ---
 

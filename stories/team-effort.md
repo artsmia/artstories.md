@@ -20,7 +20,7 @@ It could be an anteater. Or maybe a hippo. Which is to say, this *boli* is not i
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_mia_6004823.jpg)
 
-With the conversion of many Bamana people to Islam and the influence of Western medicine and judicial practices, there isn’t as much demand for a *boli* as there used to be—except among European and American collectors. In fact, quite a few copies were made in the 1970s and ’80s for the art market. The MIA wanted to ensure it was getting was the real deal, so it subjected the *boli* to a high-tech exam.
+With the conversion of many Bamana people to Islam and the influence of Western medicine and judicial practices, there isn’t as much demand for a *boli* as there used to be—except among European and American collectors. In fact, quite a few copies were made in the 1970s and ’80s for the art market. Mia wanted to ensure it was getting was the real deal, so it subjected the *boli* to a high-tech exam.
 
 ---
 
