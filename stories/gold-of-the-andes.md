@@ -14,7 +14,7 @@ Though the people of ancient Peru did not value gold as money, its symbolic conn
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_2014_TDX_MIAArtStories_254.jpg)
 
-The MIA occasionally hears from concerned visitors that the ear spools appear tarnished, and therefore must not be “real.” Like most ancient gold from Mesoamerica and South America, they are made from an alloy of gold, copper and silver that the Spaniards called *tumbaga*. They corrode from exposure to the air and periodically need to be cleaned.
+Mia occasionally hears from concerned visitors that the ear spools appear tarnished, and therefore must not be “real.” Like most ancient gold from Mesoamerica and South America, they are made from an alloy of gold, copper and silver that the Spaniards called *tumbaga*. They corrode from exposure to the air and periodically need to be cleaned.
 
 ---
 

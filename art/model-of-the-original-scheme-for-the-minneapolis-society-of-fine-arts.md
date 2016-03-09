@@ -27,6 +27,6 @@ For the competition, the architects included a set of drawings of the different 
 
 ---
 
-* [The MIA: Part of a Grand Scheme for Minneapolis](../stories/the-mia-part-of-a-grand-scheme-for-minneapolis.md)
-* [Minneapolis Institute of Arts: Then and Now](../stories/minneapolis-institute-of-arts-then-and-now.md)
+* [Mia: Part of a Grand Scheme for Minneapolis](../stories/mia-part-of-a-grand-scheme-for-minneapolis.md)
+* [Minneapolis Institute of Art: Then and Now](../stories/minneapolis-institute-of-art-then-and-now.md)
 * [Neoclassicism: The Allure of the Classical Past](../stories/neoclassicism-the-allure-of-the-classical-past.md)

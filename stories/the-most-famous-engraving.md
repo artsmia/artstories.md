@@ -9,6 +9,6 @@ Dürer’s breathtaking skill as an engraver has never been equaled. His ability
 ![](http://cdn.dx.artsmia.org/thumbs/tn_mia_5014413_CropOverlay.jpg)
 ![](http://cdn.dx.artsmia.org/thumbs/tn_mia_5030740.jpg)
 
-As with most engravings, there are multiple versions of *Melencolia I*. The MIA has had one in its collection since 1913, a rather drab example that at some point was touched up with white paint to brighten its appearance. Recently, the fine example presented here became available, so the MIA replaced its lesser example with a better reflection of Dürer’s brilliant achievement. 
+As with most engravings, there are multiple versions of *Melencolia I*. Mia has had one in its collection since 1913, a rather drab example that at some point was touched up with white paint to brighten its appearance. Recently, the fine example presented here became available, so Mia replaced its lesser example with a better reflection of Dürer’s brilliant achievement. 
 
 ---

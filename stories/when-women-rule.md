@@ -20,6 +20,6 @@ For eight years, war engulfed Europe as states battled for power. It was the fir
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_mia_1024504.jpg)
 
-The colorful history related to the House of Habsburg provided dramatic subjects for artists such as Fredrick Baer, who featured the War of Austrian Succession on his Masterpiece Cup and Cover now displayed at the MIA.
+The colorful history related to the House of Habsburg provided dramatic subjects for artists such as Fredrick Baer, who featured the War of Austrian Succession on his Masterpiece Cup and Cover now displayed at Mia.
 
 ---

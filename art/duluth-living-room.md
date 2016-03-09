@@ -19,7 +19,7 @@ Bradstreet used many Asian decorative details in this room, including dragons wi
 
 ## Cranes in the crannies
 
-This carving of flying cranes resembles Chinese carvings in the eaves of the 17th-century reception hall in the second floor galleries at the MIA. Some of Bradstreet’s pieces were imported; others were made in his Minneapolis Craftshouse.
+This carving of flying cranes resembles Chinese carvings in the eaves of the 17th-century reception hall in the second floor galleries at Mia. Some of Bradstreet’s pieces were imported; others were made in his Minneapolis Craftshouse.
 
 ## Doubly heavy piano
 
@@ -27,7 +27,7 @@ This piano is a standard Steinway with a cypress case placed atop a partial orig
 
 ## Prindle the preservationist
 
-Mina Prindle took great care of her Bradstreet interior until she died in 1965. When the MIA received the room in 1981, staff found her handwritten labels on several pieces of furniture.
+Mina Prindle took great care of her Bradstreet interior until she died in 1965. When Mia received the room in 1981, staff found her handwritten labels on several pieces of furniture.
 
 ---
 

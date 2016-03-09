@@ -14,6 +14,6 @@ The goal was to create living spaces that were affordable yet fully equipped—a
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_2014_TDX_MIAArtStories_317.jpg)
 
-The Frankfurt kitchen in the MIA’s collection comes from the Höhenblick Estate Housing complex. Built in 1926, it is one of thirteen housing developments designed by German architect Ernst May. Over 10,000 units included a Frankfurt kitchen.
+The Frankfurt kitchen in Mia’s collection comes from the Höhenblick Estate Housing complex. Built in 1926, it is one of thirteen housing developments designed by German architect Ernst May. Over 10,000 units included a Frankfurt kitchen.
 
 ---

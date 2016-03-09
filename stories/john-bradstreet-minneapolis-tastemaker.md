@@ -21,13 +21,13 @@ Bradstreet marketed his Craftshouse in Minneapolis as a unique place—“unlike
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_130517_mia341_0335.jpg)
 
-John Bradstreet helped found the Minneapolis Society of Fine Arts, the forerunner to the MIA, in 1883, and planned its early exhibitions. A year after Bradstreet’s death in a car accident, in 1914, sculptor Paul Fjelde memorialized him in this plaque.
+John Bradstreet helped found the Minneapolis Society of Fine Arts, the forerunner to Mia, in 1883, and planned its early exhibitions. A year after Bradstreet’s death in a car accident, in 1914, sculptor Paul Fjelde memorialized him in this plaque.
 
 ---
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_110906_mia341_181943.jpg)
 
-Upon his death, Bradstreet bequeathed a group of Asian objects to the MIA, some of which the museum displayed in a special John Scott Bradstreet Memorial Room in 1915.
+Upon his death, Bradstreet bequeathed a group of Asian objects to Mia, some of which the museum displayed in a special John Scott Bradstreet Memorial Room in 1915.
 
 ---
 

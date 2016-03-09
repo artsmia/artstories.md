@@ -2,7 +2,7 @@
 
 <video src='http://cdn.dx.artsmia.org/videos/marco-brewer.mp4'></video>
 
-Marco Breuer, as seen—or not seen, rather—in this video of New Pictures 2: Marco Breuer opening at the Minneapolis Institute of Arts in 2010, makes a conscious effort not to have his picture taken. He is interested in what defines a photograph, but not in being defined by photography. He wants viewers to focus on his photographs as images, not to perceive his imprint on them. 
+Marco Breuer, as seen—or not seen, rather—in this video of New Pictures 2: Marco Breuer opening at the Minneapolis Institute of Art in 2010, makes a conscious effort not to have his picture taken. He is interested in what defines a photograph, but not in being defined by photography. He wants viewers to focus on his photographs as images, not to perceive his imprint on them. 
 
 ---
 

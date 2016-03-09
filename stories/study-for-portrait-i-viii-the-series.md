@@ -33,7 +33,7 @@ The pope laughs heartily, baring his teeth in an unusual grimace in the fifth st
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_mia_4001848.jpg)
 
-In the sixth study, the MIA’s painting, the pope opens his mouth as if to speak.
+In the sixth study, Mia’s painting, the pope opens his mouth as if to speak.
 
 ---
 

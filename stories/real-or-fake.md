@@ -2,7 +2,7 @@
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_mia_5021127.jpg)
 
-Sometimes an artwork can be too good to be true. That’s the question with this sculpture, which is so rare—only three exist in American museums—and so well preserved that some experts think it’s a fake. As you can imagine, the MIA wanted to know for sure, so we worked with a specialist to uncover the truth.
+Sometimes an artwork can be too good to be true. That’s the question with this sculpture, which is so rare—only three exist in American museums—and so well preserved that some experts think it’s a fake. As you can imagine, Mia wanted to know for sure, so we worked with a specialist to uncover the truth.
 
 ---
 
