@@ -14,7 +14,7 @@ Delacroix was one of the first French artists to visit North Africa after the Fr
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_2014_TDX_MIAArtStories_278.jpg)
 
-Delacroix’s orientalism rarely lapsed into erotic fantasies, later popularized in the “harem” genre. Nor did he view the Arabs and Jews of North Africa as primitives to be civilized or savages to be suppressed; rather, he envisioned there a “living antiquity,” with the inhabitants like “Roman senators or Greeks at the Parthenaien festival,” robed in simple attire that nevertheless projected “nobility.” When he entered the household of the Women of Algiers, for instance, he exclaimed “It is beautiful! Like the age of [ancient Greek poet] Homer.”
+Delacroix’s orientalism rarely lapsed into erotic fantasies, later popularized in the “harem” genre. Nor did he view the Arabs and Jews of North Africa as primitives to be civilized or savages to be suppressed; rather, he envisioned there a “living antiquity,” with the inhabitants like “Roman senators or Greeks at the Parthenaien festival,” robed in simple attire that nevertheless projected “nobility.” When he entered the household of the Women of Algiers, for instance, he exclaimed “It is beautiful! Like the age of \[ancient Greek poet\] Homer.”
 
 ---
 

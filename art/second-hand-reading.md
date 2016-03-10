@@ -19,7 +19,7 @@ Kentridge is uninterested in merely illustrating South African history, instead 
 
 ## The Megaphone
 
-Megaphones “indicate what needs to be heard or seen, outside of oneself,” Kentridge says.  A drawing of a megaphone emitting sound appears throughout the video, a recurring motif since Kentridge’s first animatde film, *Monuments* (1991).
+Megaphones “indicate what needs to be heard or seen, outside of oneself,” Kentridge says.  A drawing of a megaphone emitting sound appears throughout the video, a recurring motif since Kentridge’s first animated film, *Monuments* (1991).
 
 ---
 

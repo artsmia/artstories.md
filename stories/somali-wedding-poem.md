@@ -9,7 +9,7 @@ Forget awkward, improvised toasts. If you want to wish a Somali couple well, you
  *May God give them to you and make them your partners*\
  *And may luck be on your side and time help you out*
 
-*Like the Nairus festival or a downpour in the Nugal [Valley]*\
+*Like the Nairus festival or a downpour in the Nugal \[Valley\]*\
  *Like the green pastures where the fat livestock is grazing*\
  *Good prospects, mercy of God and victory*\
  *The ease of prosperity, and expectations of good things*\
@@ -19,7 +19,7 @@ Forget awkward, improvised toasts. If you want to wish a Somali couple well, you
 *Clouds of prosperity, a full beaker and fortunate deeds*\
  *Wonderful kids without any shortcomings*\
  *The forefront parents of yours who were sought by all*\
- *[Be] like them a lighthouse not swaying aside*\
+ *\[Be\] like them a lighthouse not swaying aside*\
  *Good inheritance from your ancestors’ path*\
  *With wealth and general progress*\
  *Oh, Lord! Give them your bounty and affluence.*

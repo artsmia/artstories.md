@@ -39,7 +39,7 @@ Seen through drifting clouds, the full moon is engraved with the mythical Moon R
 
 ## Leafy Rim
 
-The dish has a foliated rim, meaning it has a leaf-like design. This, along with the image in the center, is similar porcelain examples from the time period, covered in luxurious blue-green celadon glaze.
+The dish has a foliated rim, meaning it has a leaf-like design. This, along with the image in the center, is a similar porcelain example from the time period, covered in luxurious blue-green celadon glaze.
 
 ---
 

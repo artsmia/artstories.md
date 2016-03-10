@@ -28,6 +28,8 @@ With the conversion of many Bamana people to Islam and the influence of Western 
 
 A radiologist and expert in CAT-scanning works of art examined the *boli *before the museum purchased it and confirmed its authenticity. How did he know? This 3D opaque model shows any particle that is denser than air, so the blue areas on the bottom of the feet represent more densely packed material, as though they’d borne a heavy weight. That would only happen with actual use, as layers of mud, blood, and other things added during rituals began to weigh it down.
 
-[http://artsmia.github.io/verso-boli/]
+**Roll over the image with your finger or pointer to reveal the CAT scan.**
+
+\[http://artsmia.github.io/verso-boli/\]
 
 ---

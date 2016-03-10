@@ -8,7 +8,7 @@ Christ’s expulsion of the money changers was a familiar artistic theme during 
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_2014_TDX_MIAArtStories_287.jpg)
 
-The monumental draped figures and perfect single point perspective in this earliest known version are standard elements of Italian Renaissance Italian painting.
+The monumental draped figures and perfect single point perspective in this earliest known version are standard elements of Italian Renaissance painting.
 
 ---
 

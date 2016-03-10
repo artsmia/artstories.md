@@ -9,7 +9,7 @@ Knives, forks, spoons, flasks, a pistol—more than 70 ordinary objects are carv
 
 ## Cotton Crates
 
-This desk is the ultimate DIY project. Behind the polish and classic looks are rough, make-do materials such as shipping crates. “COTTON PIECE GOODS/FROM/THE GLENWOOD WO[RKS]/MEDFORD. MASS” is stenciled on the underside of the desk, marking a crate from the Glenwood Works textile company that once held cotton goods.
+This desk is the ultimate DIY project. Behind the polish and classic looks are rough, make-do materials such as shipping crates. “COTTON PIECE GOODS/FROM/THE GLENWOOD WO\[RKS\]/MEDFORD. MASS” is stenciled on the underside of the desk, marking a crate from the Glenwood Works textile company that once held cotton goods.
 
 ## Tobacco Boxes
 

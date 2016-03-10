@@ -2,7 +2,7 @@
 
 ![](http://cdn.dx.artsmia.org/thumbs/tn_2014_TDX_MIAArtStories_355.jpg)
 
-Bacon claimed that his pope paintings had nothing to do with religion. Instead, he was simply obsessed with Diego Velázquez’s 1650 portrait of Pope Innocent X, an extraordinarily lifelike and revealing depiction. Not that Bacon ever saw it in person: he worked from photographs pinned to his studio walls. And when he had a chance to see it in person, in 1954, he “felt reluctant” to do so, fearing to confront the “reality of the Velázquez after [his] tampering with it.”
+Bacon claimed that his pope paintings had nothing to do with religion. Instead, he was simply obsessed with Diego Velázquez’s 1650 portrait of Pope Innocent X, an extraordinarily lifelike and revealing depiction. Not that Bacon ever saw it in person: he worked from photographs pinned to his studio walls. And when he had a chance to see it in person, in 1954, he “felt reluctant” to do so, fearing to confront the “reality of the Velázquez after \[his\] tampering with it.”
 
 ---
 

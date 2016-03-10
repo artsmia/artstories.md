@@ -75,6 +75,7 @@
 * [Frankfurt Kitchen](art/frankfurt-kitchen.md)
 * [Pair of Earspools](art/pair-of-earspools.md)
 * [Halberd](art/halberd.md)
+* [Equestrian Figure](art/equestrian-figure.md)
 * [Made in China: The MacFarlane Room Wallpaper](art/made-in-china-the-macfarlane-room-wallpaper.md)
 * [Okuni Kabuki ](art/okuni-kabuki.md)
 * [Early Spring Landscape](art/early-spring-landscape.md)

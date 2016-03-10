@@ -11,7 +11,7 @@ The artist used thin lines of silver to depict the sprays and swirls of a founta
 
 ## Delicate Details
 
-The artist used a fine brush, sometimes the width of a single hair, to apply exquisite details to the figures, like the red henna on the hands on the fairies and the dampness of their long hair. Their necklaces, pearl earrings, gold bracelets, and even nose rings are all clearly visible.
+The artist used a fine brush, sometimes the width of a single hair, to apply exquisite details to the figures, like the red henna on the hands of the fairies and the dampness of their long hair. Their necklaces, pearl earrings, gold bracelets, and even nose rings are all clearly visible.
 
 ## Gold Accents
 

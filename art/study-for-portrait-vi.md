@@ -15,7 +15,7 @@ The uncomfortable-loooking man in question is Innocent X, who was the pope from 
 
 ## The Screaming Popes
 
-In each of Bacon’s papal portraits, the pope is screaming. In a 2002 interview, Bacon said, “When I made the Pope screaming, I didn't do it in the way I wanted to…I wanted to make the mouth, with the beauty of its color and everything, look like one of the sunsets or something of Monet, and not just the screaming Pope. If I did it again, which I hope to God I never will, I would make it like a Monet.”
+In each of Bacon’s papal portraits, the pope is screaming. In a 1973 interview, Bacon said, “When I made the Pope screaming, I didn't do it in the way I wanted to…I wanted to make the mouth, with the beauty of its color and everything, look like one of the sunsets or something of Monet, and not just the screaming Pope. If I did it again, which I hope to God I never will, I would make it like a Monet.”
 
 ---
 
