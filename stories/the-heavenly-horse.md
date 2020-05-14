@@ -1,6 +1,6 @@
 # [The “Heavenly Horse”](http://artstories.artsmia.org/#/stories/729)
 
-![](http://cdn.dx.artsmia.org/thumbs/tn_2014_TDX_MIAArtStories_304.jpg)
+![](https://leonardo.osnova.io/2213a48e-ce7e-cdf1-7f29-6145307eb413/)
 
 During the Han dynasty, imperial envoys to Central Asia returned to court marveling over a breed of “heavenly horse” popular out west. It was a stout steed, they said, with a powerful back and shoulders with such stamina that they sweated blood and kept on churning.  Horses became very popular subjects in Chinese art, partly due to the Han rulers’ interest in these fabled animals.
 
